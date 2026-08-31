@@ -1,0 +1,193 @@
+/* ── tilt-card.css ──
+   Faithful vanilla port of unlumen UI's TiltCard / Tilt / ClippedCircle
+   (https://ui.unlumen.com/components/tilt-card)
+
+   Tailwind → CSS mapping used below:
+   - h-48 / sm:h-52 / md:h-56        → 192px / 208px / 224px
+   - rounded-lg                       → 8px
+   - px-4 sm:px-6 py-4 sm:py-5        → 16px/24px horizontal, 16px/20px vertical
+   - text-lg / text-sm                → 18px / 14px
+   - top-27 -right-10 w-72            → 108px / -40px / 288px
+   - rotate-[-5deg] / group-hover:-rotate-3 -translate-y-1 -translate-x-0.5
+   - rotationFactor 11 (Tilt)         → ±11deg max tilt
+   - circleSize 800 (ClippedCircle)   → 800px difference-blend circle
+   - duration-400 / spring easing     → matched below
+*/
+
+.tilt-card-link {
+  display: block;
+  text-decoration: none;
+  cursor: pointer;
+}
+
+.tilt-card {
+  position: relative;
+  overflow: hidden;
+  display: flex;
+  flex-direction: column;
+  gap: 16px;
+  width: 100%;
+  height: 192px;
+
+  background: var(--black);
+  border-radius: 15px;
+
+  transform-style: preserve-3d;
+  will-change: transform, box-shadow;
+  transition: box-shadow 0.4s ease-out;
+}
+
+.tilt-card:hover {
+  box-shadow: 0 20px 45px rgba(0, 0, 0, 0.45);
+}
+
+@media (min-width: 640px) {
+  .tilt-card {
+    height: 208px;
+  }
+}
+
+@media (min-width: 768px) {
+  .tilt-card {
+    height: 224px;
+  }
+}
+
+.tilt-card-header {
+  position: relative;
+  z-index: 2;
+  display: flex;
+  flex-direction: row;
+  justify-content: space-between;
+  padding: 16px 16px;
+  transition: all 0.2s;
+}
+
+@media (min-width: 640px) {
+  .tilt-card-header {
+    padding: 20px 24px;
+  }
+  .tilt-card-stack-item {
+    font-size: 13px;
+    padding: 7px 13px;
+  }
+}
+
+.tilt-card-text {
+  font-family: var(--font-sora);
+  display: flex;
+  flex-direction: column;
+  gap: 4px;
+  flex: 1;
+  margin-right: 8px;
+}
+
+.tilt-card-title {
+  font-size: 18px;
+  letter-spacing: -0.01em;
+  line-height: 1.2;
+  font-weight: 500;
+  color: var(--tc-title, #fff);
+}
+
+.tilt-card-desc {
+  font-size: 14px;
+  color: var(--tc-desc, rgba(255, 255, 255, 0.5));
+}
+
+.tilt-card-desc-more {
+  font-size: 14px;
+  color: var(--tc-desc, rgba(255, 255, 255, 0.5));
+  max-width: 250px;
+  margin-top: 10px;
+}
+
+.tilt-card-stack {
+  display: flex;
+  flex-wrap: wrap;
+  gap: 10px;
+  align-items: center; 
+  margin-top: 5px;
+}
+
+.tilt-card-stack-item {
+  background: #2a2a2a;
+  color: #ffffff;
+  font-family: var(--font-sora);
+  font-size: 14px;
+  font-weight: 400;
+  padding: 9px 16px;
+  border-radius: 8px;
+  display: inline-flex;
+  align-items: center;
+  justify-content: center;
+  border: 1px solid rgba(255, 255, 255, 0.06);
+  transition: background 0.25s ease, transform 0.25s ease, border-color 0.25s ease;
+  user-select: none;
+  -webkit-tap-highlight-color: transparent;
+}
+
+.tilt-card-stack-item:hover {
+  background: #3a3a3a;
+  border-color: rgba(255, 255, 255, 0.2);
+  color: #ffffff;
+}
+
+/* ── Floating image ── */
+.tilt-card-image {
+  position: absolute;
+  z-index: 10;
+  top: 108px;
+  right: -40px;
+  width: 288px;
+  max-width: none;
+  /* aspect-ratio: 288 / 224; */
+  object-fit: cover;
+
+  border: 1px solid var(--tc-border, rgba(255, 255, 255, 0.12));
+  border-radius: 6px;
+
+  transform: rotate(-5deg);
+  transition: transform 0.3s ease-out;
+  pointer-events: none;
+}
+
+.tilt-card:hover .tilt-card-image {
+  transform: rotate(-3deg) translateY(-4px) translateX(-2px);
+}
+
+/* ── Clipped circle (radial shine on hover) ── */
+.clipped-circle-wrap {
+  position: absolute;
+  inset: 0;
+  overflow: hidden;
+  pointer-events: none;
+  z-index: 1;
+}
+
+.clipped-circle {
+  position: absolute;
+  width: 600px;
+  height: 600px;
+  border-radius: 50%;
+  background: radial-gradient(circle, rgba(255, 255, 255, 0.18) 0%, rgba(255, 255, 255, 0) 70%);
+  transform: translate(-50%, -50%) scale(0);
+  transition: transform 0.5s cubic-bezier(0.19, 1, 0.22, 1);
+  will-change: transform, left, top;
+}
+
+@media (max-width: 640px) {
+  .tilt-card-image {
+    width: 220px;
+    top: 90px;
+    right: -50px;
+  }
+  .tilt-card-stack {
+    gap: 6px;
+  }
+  .tilt-card-stack-item {
+    font-size: 11.5px;
+    padding: 6px 10px;
+    border-radius: 6px;
+  }
+}
