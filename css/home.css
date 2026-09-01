@@ -999,6 +999,7 @@ footer.active .bottom-social-btn:hover svg {
     flex-direction: column;
     gap: 16px;
     margin-bottom: 32px;
+    align-items: flex-start;
   }
 
   .works-title {
@@ -1022,31 +1023,40 @@ footer.active .bottom-social-btn:hover svg {
     flex-direction: column;
     align-items: flex-start;
     padding: 48px 24px;
+    gap: 32px;
   }
 
   footer {
-    padding: 20px 24px;
-    flex-wrap: wrap;
+    padding: 24px 24px 32px;
+    flex-direction: column;
+    gap: 24px;
+    align-items: flex-start;
   }
 
   .bottom-bar {
-    padding-bottom: 96px;
-    /* Extra spacing to clear the floating nav pill */
+    padding: 36px 24px 100px;
+    min-height: 240px;
+    display: flex;
+    flex-direction: column;
+    justify-content: space-between;
+  }
+
+  .bottom-bar-eyebrow {
+    font-size: clamp(20px, 4.5vw, 32px);
+    padding-right: 64px;
+    margin-bottom: 0;
+    line-height: 1.35;
   }
 
   .bottom-bar-name {
-    font-size: clamp(38px, 11vw, 64px);
+    font-size: clamp(48px, 13vw, 96px);
     white-space: normal;
+    word-break: break-word;
+    margin-top: 24px;
   }
 }
 
 @media (max-width: 768px) {
-  .bottom-bar-top-right {
-    top: 16px;
-    right: 16px;
-    gap: 8px;
-  }
-
   .bottom-bar-socials {
     padding: 4px 8px;
     gap: 6px;
@@ -1063,12 +1073,12 @@ footer.active .bottom-social-btn:hover svg {
   }
 
   .bottom-bar-arrow {
-    width: 48px;
-    height: 48px;
+    width: 46px;
+    height: 46px;
+    top: 32px;
+    right: 24px;
   }
-}
 
-@media (max-width: 768px) {
   .nav-pill {
     position: fixed;
     bottom: 20px;
@@ -1079,8 +1089,7 @@ footer.active .bottom-social-btn:hover svg {
     padding: 8px 12px;
     border-radius: 20px;
     background: transparent;
-    /*backdrop-filter: blur(12px);*/
-    /*-webkit-backdrop-filter: blur(12px);*/
+    border: 1px solid rgba(255, 255, 255, 0.12);
     display: flex;
     gap: 8px;
   }
@@ -1093,6 +1102,50 @@ footer.active .bottom-social-btn:hover svg {
   .nav-pill-btn svg {
     width: 18px;
     height: 18px;
+  }
+}
+
+@media (max-width: 480px) {
+  .nav {
+    padding: 16px 16px 0;
+  }
+
+  .bio-section {
+    padding: 36px 16px;
+  }
+
+  .works-section {
+    padding: 36px 16px;
+  }
+
+  .cta-section {
+    padding: 36px 16px;
+  }
+
+  footer {
+    padding: 20px 16px 28px;
+  }
+
+  .bottom-bar {
+    padding: 28px 16px 100px;
+    min-height: 220px;
+  }
+
+  .bottom-bar-eyebrow {
+    font-size: clamp(16px, 5vw, 22px);
+    padding-right: 52px;
+  }
+
+  .bottom-bar-arrow {
+    width: 40px;
+    height: 40px;
+    top: 26px;
+    right: 16px;
+  }
+
+  .bottom-bar-name {
+    font-size: clamp(44px, 14vw, 68px);
+    margin-top: 20px;
   }
 }
 
@@ -1111,14 +1164,14 @@ footer.active .bottom-social-btn:hover svg {
     width: 16px;
     height: 16px;
   }
+}
 
-  .cta-wrapper {
-    background: var(--white);
-    width: 100%;
-  }
+.cta-wrapper {
+  background: var(--white);
+  width: 100%;
+}
 
-  .cta-wrapper::selection {
-    background: var(--black);
-    color: var(--white);
-  }
+.cta-wrapper::selection {
+  background: var(--black);
+  color: var(--white);
 }

@@ -177,17 +177,27 @@
 }
 
 @media (max-width: 640px) {
+  .tilt-card {
+    height: auto;
+    min-height: 210px;
+    padding-bottom: 16px;
+  }
+  .tilt-card-desc-more {
+    max-width: 200px;
+  }
   .tilt-card-image {
-    width: 220px;
-    top: 90px;
-    right: -50px;
+    width: 190px;
+    top: auto;
+    bottom: -20px;
+    right: -30px;
+    opacity: 0.85;
   }
   .tilt-card-stack {
     gap: 6px;
   }
   .tilt-card-stack-item {
     font-size: 11.5px;
-    padding: 6px 10px;
+    padding: 5px 10px;
     border-radius: 6px;
   }
 }
