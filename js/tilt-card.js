@@ -33,7 +33,10 @@
     let rafId = null;
 
     function render() {
-      if (card.dataset.noTilt === "true" || card.classList.contains("no-tilt")) {
+      if (
+        card.dataset.noTilt === "true" ||
+        card.classList.contains("no-tilt")
+      ) {
         card.style.transform = "none";
         return;
       }

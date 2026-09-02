@@ -1,7 +1,7 @@
-@import url('https://fonts.googleapis.com/css2?family=Inter:wght@300;400;500;600;700&family=DM+Sans:wght@300;400;500;600;700&family=IBM+Plex+Mono:wght@400;500&display=swap');
-@import url('https://fonts.googleapis.com/css2?family=Skranji&display=swap');
-@import url('https://fonts.googleapis.com/css2?family=Coral+Pixels&display=swap');
-@import url('https://fonts.googleapis.com/css2?family=Sora:wght@100..800&display=swap');
+@import url("https://fonts.googleapis.com/css2?family=Inter:wght@300;400;500;600;700&family=DM+Sans:wght@300;400;500;600;700&family=IBM+Plex+Mono:wght@400;500&display=swap");
+@import url("https://fonts.googleapis.com/css2?family=Skranji&display=swap");
+@import url("https://fonts.googleapis.com/css2?family=Coral+Pixels&display=swap");
+@import url("https://fonts.googleapis.com/css2?family=Sora:wght@100..800&display=swap");
 
 *,
 *::before,
@@ -13,17 +13,17 @@
 
 :root {
   --black: #000000;
-  --white: #FFFFFF;
-  --card-bg: #1E1E1E;
+  --white: #ffffff;
+  --card-bg: #1e1e1e;
   --icon-bg: #141414;
-  --text-dim: #AAAAAA;
-  --accent: #455CE9;
-  --font-inter: 'Inter', sans-serif;
-  --font-dm: 'DM Sans', sans-serif;
-  --font-mono: 'IBM Plex Mono', monospace;
-  --font-skranji: 'Skranji', sans-serif;
-  --font-sora: 'Sora', sans-serif;
-  --font-coral: 'Coral Pixels', sans-serif;
+  --text-dim: #aaaaaa;
+  --accent: #455ce9;
+  --font-inter: "Inter", sans-serif;
+  --font-dm: "DM Sans", sans-serif;
+  --font-mono: "IBM Plex Mono", monospace;
+  --font-skranji: "Skranji", sans-serif;
+  --font-sora: "Sora", sans-serif;
+  --font-coral: "Coral Pixels", sans-serif;
 }
 
 html {
@@ -64,11 +64,12 @@ body {
   pointer-events: none;
   z-index: 9998;
   transform: translate(-50%, -50%);
-  transition: left .12s ease, top .12s ease;
+  transition:
+    left 0.12s ease,
+    top 0.12s ease;
 }
 
 @media (hover: none) {
-
   .cursor,
   .cursor-follower {
     display: none !important;
@@ -121,7 +122,7 @@ body {
 }
 
 .nav-link::after {
-  content: '';
+  content: "";
   position: absolute;
   bottom: -3px;
   left: 0;
@@ -169,13 +170,13 @@ body {
   align-items: center;
   justify-content: center;
   text-decoration: none;
-  transition: background .2s;
+  transition: background 0.2s;
   border: none;
   cursor: pointer;
 }
 
 .nav-pill-btn.active {
-  background: #D4D4D4;
+  background: #d4d4d4;
 }
 
 .nav-pill-btn:hover {
@@ -193,7 +194,8 @@ body {
   flex-direction: column;
   justify-content: center;
   align-items: center;
-  padding: clamp(60px, 8vw, 120px) clamp(32px, 6vw, 115px) clamp(48px, 6vw, 90px);
+  padding: clamp(60px, 8vw, 120px) clamp(32px, 6vw, 115px)
+    clamp(48px, 6vw, 90px);
   text-align: center;
 }
 
@@ -257,7 +259,9 @@ body {
   justify-content: center;
   gap: 20px;
   overflow: hidden;
-  transition: transform .3s ease, background .3s;
+  transition:
+    transform 0.3s ease,
+    background 0.3s;
 }
 
 .skill-card::selection {
@@ -289,7 +293,6 @@ body {
   font-size: 28px;
   flex-shrink: 0;
 }
-
 
 /* Small pill tags (for CS concepts cards) */
 .skill-tags-row {
@@ -390,7 +393,9 @@ body {
   justify-content: center;
   text-decoration: none;
   flex-shrink: 0;
-  transition: transform .3s ease, background .3s;
+  transition:
+    transform 0.3s ease,
+    background 0.3s;
 }
 
 .cta-circle:hover {
@@ -420,23 +425,31 @@ footer {
   display: flex;
   gap: 57px;
   position: relative;
-  transition: background 0.6s cubic-bezier(0.16, 1, 0.3, 1), border-color 0.6s cubic-bezier(0.16, 1, 0.3, 1);
+  transition:
+    background 0.6s cubic-bezier(0.16, 1, 0.3, 1),
+    border-color 0.6s cubic-bezier(0.16, 1, 0.3, 1);
 }
 
 @keyframes footerAccentPulse {
   0% {
     transform: scale(0.98);
-    box-shadow: inset 0 0 0 0 rgba(255, 255, 255, 0.4), 0 0 0 0 rgba(69, 92, 233, 0.6);
+    box-shadow:
+      inset 0 0 0 0 rgba(255, 255, 255, 0.4),
+      0 0 0 0 rgba(69, 92, 233, 0.6);
   }
 
   50% {
     transform: scale(1.012);
-    box-shadow: inset 0 0 35px rgba(255, 255, 255, 0.25), 0 12px 35px rgba(69, 92, 233, 0.4);
+    box-shadow:
+      inset 0 0 35px rgba(255, 255, 255, 0.25),
+      0 12px 35px rgba(69, 92, 233, 0.4);
   }
 
   100% {
     transform: scale(1);
-    box-shadow: inset 0 0 0 0 rgba(255, 255, 255, 0), 0 0 0 0 rgba(69, 92, 233, 0);
+    box-shadow:
+      inset 0 0 0 0 rgba(255, 255, 255, 0),
+      0 0 0 0 rgba(69, 92, 233, 0);
   }
 }
 
@@ -453,7 +466,7 @@ footer.active {
   font-family: var(--font-mono);
   font-weight: 400;
   font-size: 15px;
-  color: #7E7E7E;
+  color: #7e7e7e;
   display: block;
   margin-bottom: 6px;
   transition: color 0.4s ease;
@@ -479,7 +492,9 @@ footer.active .footer-item .footer-label::selection {
   font-size: clamp(16px, 1.6vw, 22px);
   color: var(--black);
   text-decoration: none;
-  transition: color 0.4s ease, opacity .2s;
+  transition:
+    color 0.4s ease,
+    opacity 0.2s;
 }
 
 footer.active .footer-item a {
@@ -506,7 +521,9 @@ footer.active .footer-item a::selection {
   font-size: clamp(16px, 1.6vw, 22px);
   color: var(--black);
   text-decoration: none;
-  transition: color 0.4s ease, opacity .2s;
+  transition:
+    color 0.4s ease,
+    opacity 0.2s;
 }
 
 footer.active .footer-item p {
@@ -530,13 +547,13 @@ footer.active .footer-item p::selection {
 footer.active .bottom-social-btn {
   background: rgba(255, 255, 255, 0.2);
   border-color: rgba(255, 255, 255, 0.3);
-  color: #FFFFFF;
+  color: #ffffff;
 }
 
 footer.active .bottom-social-btn:hover {
-  background: #FFFFFF;
+  background: #ffffff;
   color: var(--accent);
-  border-color: #FFFFFF;
+  border-color: #ffffff;
 }
 
 footer.active .bottom-social-btn:hover svg {
@@ -611,7 +628,7 @@ footer.active .bottom-social-btn:hover svg {
   justify-content: center;
   cursor: pointer;
   border: none;
-  transition: transform .3s;
+  transition: transform 0.3s;
 }
 
 .bottom-bar-arrow:hover {
@@ -641,16 +658,16 @@ footer.active .bottom-social-btn:hover svg {
   justify-content: center;
   background: transparent;
   border: 1px solid rgba(255, 255, 255, 0.1);
-  color: #D4D4D4;
+  color: #d4d4d4;
   text-decoration: none;
   position: relative;
   transition: all 1s ease;
 }
 
 .bottom-social-btn:hover {
-  background: #FFFFFF;
+  background: #ffffff;
   color: #000000;
-  border-color: #FFFFFF;
+  border-color: #ffffff;
 }
 
 .bottom-social-btn svg {
@@ -741,7 +758,6 @@ footer.active .bottom-social-btn:hover svg {
     width: 56px;
     height: 56px;
     font-size: 20px;
-
   }
 
   .skill-tag {
@@ -898,9 +914,10 @@ footer.active .bottom-social-btn:hover svg {
   overflow: hidden;
   backdrop-filter: blur(14px);
   -webkit-backdrop-filter: blur(14px);
-  transition: background 0.35s cubic-bezier(0.16, 1, 0.3, 1),
-              border-color 0.35s cubic-bezier(0.16, 1, 0.3, 1),
-              box-shadow 0.35s cubic-bezier(0.16, 1, 0.3, 1);
+  transition:
+    background 0.35s cubic-bezier(0.16, 1, 0.3, 1),
+    border-color 0.35s cubic-bezier(0.16, 1, 0.3, 1),
+    box-shadow 0.35s cubic-bezier(0.16, 1, 0.3, 1);
 }
 
 @media (hover: hover) and (pointer: fine) {
@@ -913,7 +930,9 @@ footer.active .bottom-social-btn:hover svg {
 .accordion-panel.active {
   background: rgba(255, 255, 255, 0.05);
   border-color: rgba(255, 255, 255, 0.2);
-  box-shadow: 0 20px 50px rgba(0, 0, 0, 0.6), 0 0 35px rgba(69, 92, 233, 0.18);
+  box-shadow:
+    0 20px 50px rgba(0, 0, 0, 0.6),
+    0 0 35px rgba(69, 92, 233, 0.18);
 }
 
 /* Accordion Header */
@@ -999,9 +1018,10 @@ footer.active .bottom-social-btn:hover svg {
   display: flex;
   align-items: center;
   justify-content: center;
-  transition: transform 0.4s cubic-bezier(0.16, 1, 0.3, 1),
-              background 0.3s ease,
-              border-color 0.3s ease;
+  transition:
+    transform 0.4s cubic-bezier(0.16, 1, 0.3, 1),
+    background 0.3s ease,
+    border-color 0.3s ease;
   flex-shrink: 0;
 }
 
@@ -1027,9 +1047,10 @@ footer.active .bottom-social-btn:hover svg {
   max-height: 0;
   opacity: 0;
   overflow: hidden;
-  transition: max-height 0.45s cubic-bezier(0.16, 1, 0.3, 1),
-              opacity 0.35s ease,
-              padding 0.35s ease;
+  transition:
+    max-height 0.45s cubic-bezier(0.16, 1, 0.3, 1),
+    opacity 0.35s ease,
+    padding 0.35s ease;
   padding: 0 32px;
 }
 
@@ -1074,7 +1095,10 @@ footer.active .bottom-social-btn:hover svg {
   align-items: center;
   justify-content: center;
   border: 1px solid rgba(255, 255, 255, 0.06);
-  transition: background 0.25s ease, transform 0.25s ease, border-color 0.25s ease;
+  transition:
+    background 0.25s ease,
+    transform 0.25s ease,
+    border-color 0.25s ease;
   user-select: none;
   -webkit-tap-highlight-color: transparent;
 }
@@ -1112,7 +1136,6 @@ footer.active .bottom-social-btn:hover svg {
   line-height: 1;
   cursor: pointer;
 }
-
 
 @media (max-width: 900px) {
   .skills-section {
@@ -1325,8 +1348,6 @@ footer.active .bottom-social-btn:hover svg {
   }
 }
 
-
-
 /* ── Contact Form Styles ── */
 .cta-wrapper {
   background: var(--white);
@@ -1339,7 +1360,10 @@ footer.active .bottom-social-btn:hover svg {
   opacity: 0;
   padding: 0 clamp(32px, 6.9vw, 133px);
   background: var(--white);
-  transition: max-height 0.6s cubic-bezier(0.25, 1, 0.5, 1), padding 0.6s ease, opacity 0.6s ease;
+  transition:
+    max-height 0.6s cubic-bezier(0.25, 1, 0.5, 1),
+    padding 0.6s ease,
+    opacity 0.6s ease;
 }
 
 .contact-form-container.active {
@@ -1435,11 +1459,11 @@ footer.active .bottom-social-btn:hover svg {
 }
 
 .form-status.success {
-  color: #10B981;
+  color: #10b981;
 }
 
 .form-status.error {
-  color: #EF4444;
+  color: #ef4444;
 }
 
 @media (max-width: 768px) {

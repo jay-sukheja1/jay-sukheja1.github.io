@@ -106,7 +106,7 @@
   display: flex;
   flex-wrap: wrap;
   gap: 10px;
-  align-items: center; 
+  align-items: center;
   margin-top: 5px;
 }
 
@@ -122,7 +122,10 @@
   align-items: center;
   justify-content: center;
   border: 1px solid rgba(255, 255, 255, 0.06);
-  transition: background 0.25s ease, transform 0.25s ease, border-color 0.25s ease;
+  transition:
+    background 0.25s ease,
+    transform 0.25s ease,
+    border-color 0.25s ease;
   user-select: none;
   -webkit-tap-highlight-color: transparent;
 }
@@ -170,7 +173,11 @@
   width: 600px;
   height: 600px;
   border-radius: 50%;
-  background: radial-gradient(circle, rgba(255, 255, 255, 0.18) 0%, rgba(255, 255, 255, 0) 70%);
+  background: radial-gradient(
+    circle,
+    rgba(255, 255, 255, 0.18) 0%,
+    rgba(255, 255, 255, 0) 70%
+  );
   transform: translate(-50%, -50%) scale(0);
   transition: transform 0.5s cubic-bezier(0.19, 1, 0.22, 1);
   will-change: transform, left, top;

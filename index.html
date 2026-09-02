@@ -1,109 +1,144 @@
-<!DOCTYPE html>
+<!doctype html>
 
 <html lang="en">
+  <head>
+    <meta charset="UTF-8" />
+    <meta name="viewport" content="width=device-width, initial-scale=1.0" />
+    <title>Jay – Designer & Developer</title>
+    <link rel="stylesheet" href="css/home.css" />
+    <link rel="stylesheet" href="css/tilt-card.css" />
+    <link
+      rel="icon"
+      href="data:image/svg+xml,<svg xmlns=%22http://www.w3.org/2000/svg%22 viewBox=%220 0 100 100%22><text y=%22.9em%22 font-size=%2290%22>👽</text></svg>"
+    />
+  </head>
 
-<head>
-  <meta charset="UTF-8" />
-  <meta name="viewport" content="width=device-width, initial-scale=1.0" />
-  <title>Jay – Designer & Developer</title>
-  <link rel="stylesheet" href="css/home.css" />
-  <link rel="stylesheet" href="css/tilt-card.css" />
-  <link rel="icon" href="data:image/svg+xml,<svg xmlns=%22http://www.w3.org/2000/svg%22 viewBox=%220 0 100 100%22><text y=%22.9em%22 font-size=%2290%22>👽</text></svg>">
-</head>
+  <body>
+    <div class="cursor" id="cursor"></div>
+    <div class="cursor-follower" id="cursorFollower"></div>
 
-<body>
+    <!-- ── HERO ── -->
+    <section class="hero">
+      <!-- Nav lives inside hero so it scrolls away -->
+      <nav class="nav">
+        <a href="index.html" class="nav-logo">Jay</a>
+      </nav>
 
-  <div class="cursor" id="cursor"></div>
-  <div class="cursor-follower" id="cursorFollower"></div>
+      <img src="resources/image_bw.webp" alt="Jay" class="hero-bg" />
+      <div class="hero-overlay"></div>
+      <img src="resources/image_bw_png.webp" alt="Jay Cutout" class="hero-fg" />
 
-  <!-- ── HERO ── -->
-  <section class="hero">
-    <!-- Nav lives inside hero so it scrolls away -->
-    <nav class="nav">
-      <a href="index.html" class="nav-logo">Jay</a>
-    </nav>
+      <div class="hero-content">
+        <!-- Scrolling title -->
+        <div class="hero-title-marquee">
+          <div class="hero-title-track">
+            <span>Creative Developer &amp; Designer&nbsp;·&nbsp;</span>
+            <span>Creative Developer &amp; Designer&nbsp;·&nbsp;</span>
+            <span>Creative Developer &amp; Designer&nbsp;·&nbsp;</span>
+            <span>Creative Developer &amp; Designer&nbsp;·&nbsp;</span>
+          </div>
+        </div>
 
-    <img src="resources/image_bw.webp" alt="Jay" class="hero-bg" />
-    <div class="hero-overlay"></div>
-    <img src="resources/image_bw_png.webp" alt="Jay Cutout" class="hero-fg" />
-
-    <div class="hero-content">
-      <!-- Scrolling title -->
-      <div class="hero-title-marquee">
-        <div class="hero-title-track">
-          <span>Creative Developer &amp; Designer&nbsp;·&nbsp;</span>
-          <span>Creative Developer &amp; Designer&nbsp;·&nbsp;</span>
-          <span>Creative Developer &amp; Designer&nbsp;·&nbsp;</span>
-          <span>Creative Developer &amp; Designer&nbsp;·&nbsp;</span>
+        <!-- Navigation Pill -->
+        <div class="nav-pill">
+          <!-- Home -->
+          <a
+            href="index.html"
+            class="nav-pill-btn active"
+            aria-label="Home"
+            id="pill-home"
+          >
+            <svg
+              viewBox="0 0 24 24"
+              fill="none"
+              stroke="#000"
+              stroke-width="1.8"
+              stroke-linecap="round"
+              stroke-linejoin="round"
+            >
+              <path d="M3 9l9-7 9 7v11a2 2 0 0 1-2 2H5a2 2 0 0 1-2-2z" />
+              <polyline points="9 22 9 12 15 12 15 22" />
+            </svg>
+          </a>
+          <!-- Work -->
+          <a
+            href="work.html"
+            class="nav-pill-btn"
+            aria-label="Work"
+            id="pill-work"
+          >
+            <svg xmlns="http://w3.org" viewBox="0 0 24 24" fill="#fff">
+              <path
+                d="M20 6h-4V4c0-1.11-.89-2-2-2h-4c-1.11 0-2 .89-2 2v2H2c-1.11 0-2 .89-2 2v11c0 1.11.89 2 2 2h20c1.11 0 2-.89 2-2V8c0-1.11-.89-2-2-2zM10 4h4v2h-4V4zm12 15H2V8h20v11z"
+              />
+            </svg>
+          </a>
+          <!-- Skills -->
+          <a
+            href="skills copy.html"
+            class="nav-pill-btn"
+            aria-label="Skills"
+            id="pill-skills"
+          >
+            <svg xmlns="http://w3.org" viewBox="0 0 24 24" fill="#fff">
+              <path
+                d="M12 2C7.58 2 4 5.58 4 10c0 2.21.89 4.21 2.34 5.66L4 22l8-2 8 2-2.34-6.34C19.11 14.21 20 12.21 20 10c0-4.42-3.58-8-8-8zm0 13c-2.76 0-5-2.24-5-5s2.24-5 5-5 5 2.24 5 5-2.24 5-5 5z"
+              />
+            </svg>
+          </a>
         </div>
       </div>
 
-      <!-- Navigation Pill -->
-      <div class="nav-pill">
-        <!-- Home -->
-        <a href="index.html" class="nav-pill-btn active" aria-label="Home" id="pill-home">
-          <svg viewBox="0 0 24 24" fill="none" stroke="#000" stroke-width="1.8" stroke-linecap="round"
-            stroke-linejoin="round">
-            <path d="M3 9l9-7 9 7v11a2 2 0 0 1-2 2H5a2 2 0 0 1-2-2z" />
-            <polyline points="9 22 9 12 15 12 15 22" />
-          </svg>
-        </a>
-        <!-- Work -->
-        <a href="work.html" class="nav-pill-btn" aria-label="Work" id="pill-work">
-          <svg xmlns="http://w3.org" viewBox="0 0 24 24" fill="#fff">
-            <path
-              d="M20 6h-4V4c0-1.11-.89-2-2-2h-4c-1.11 0-2 .89-2 2v2H2c-1.11 0-2 .89-2 2v11c0 1.11.89 2 2 2h20c1.11 0 2-.89 2-2V8c0-1.11-.89-2-2-2zM10 4h4v2h-4V4zm12 15H2V8h20v11z" />
-          </svg>
-        </a>
-        <!-- Skills -->
-        <a href="skills copy.html" class="nav-pill-btn" aria-label="Skills" id="pill-skills">
-          <svg xmlns="http://w3.org" viewBox="0 0 24 24" fill="#fff">
-            <path
-              d="M12 2C7.58 2 4 5.58 4 10c0 2.21.89 4.21 2.34 5.66L4 22l8-2 8 2-2.34-6.34C19.11 14.21 20 12.21 20 10c0-4.42-3.58-8-8-8zm0 13c-2.76 0-5-2.24-5-5s2.24-5 5-5 5 2.24 5 5-2.24 5-5 5z" />
-          </svg>
+      <!-- Marquee skills bar -->
+      <div class="marquee-bar">
+        <div class="marquee-inner"></div>
+      </div>
+    </section>
+
+    <!-- ── BIO ── -->
+    <section class="bio-section">
+      <p class="bio-text">
+        Driven by data and inspired by design, I build impact-driven analytical
+        solutions. As a student, I'm always learning and exploring new ways to
+        turn complex data into beautifully structured, meaningful insights.
+      </p>
+      <div class="bio-right">
+        <p class="bio-right-text">
+          The fusion of my passion for design, data, development, and seamless
+          user experiences places me at the intersection of creativity and
+          technology in the digital world.
+        </p>
+        <a href="skills%20copy.html" class="more-btn">
+          <p class="more-btn-text">Explore my Skills</p>
+          <span class="more-btn-arrow">
+            <svg
+              viewBox="0 0 24 24"
+              fill="none"
+              stroke="currentColor"
+              stroke-width="1.8"
+              stroke-linecap="round"
+              stroke-linejoin="round"
+            >
+              <path d="M7 17L17 7M7 7h10v10" />
+            </svg>
+          </span>
         </a>
       </div>
-    </div>
+    </section>
 
-    <!-- Marquee skills bar -->
-    <div class="marquee-bar">
-      <div class="marquee-inner">
-
+    <!-- ── WORKS ── -->
+    <section class="works-section">
+      <div class="works-header">
+        <h2 class="works-title">Impressive Works</h2>
       </div>
-    </div>
-  </section>
 
-  <!-- ── BIO ── -->
-  <section class="bio-section">
-    <p class="bio-text">Driven by data and inspired by design, I build impact-driven analytical solutions. As a student,
-      I'm always learning and exploring new ways to turn complex data into beautifully structured, meaningful insights.
-    </p>
-    <div class="bio-right">
-    <p class="bio-right-text">The fusion of my passion for design, data, development, and seamless user experiences places me at the intersection of creativity and technology in the digital world.</p> 
-    <a href="skills%20copy.html" class="more-btn"> 
-    <p class="more-btn-text">Explore my Skills</p>
-    <span class="more-btn-arrow">
-    <svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="1.8" stroke-linecap="round" stroke-linejoin="round"><path d="M7 17L17 7M7 7h10v10"/></svg>
-     </span> 
-    </a> 
-    </div>
-  </section>
-
-  
-
-  <!-- ── WORKS ── -->
-  <section class="works-section">
-    <div class="works-header">
-      <h2 class="works-title">Impressive Works</h2>
-    </div>
-
-    <div class="projects-grid">
-      <a class="link-to-project" href="https://jay-sukheja1.github.io">
-            <div class="tilt-card-link">
-              <div class="tilt-card">
-                <div class="tilt-card-header">
-                  <div class="tilt-card-text">
-                    <span style="display: flex">
+      <div class="projects-grid">
+        <a class="link-to-project" href="https://jay-sukheja1.github.io">
+          <div class="tilt-card-link">
+            <div class="tilt-card">
+              <div class="tilt-card-header">
+                <div class="tilt-card-text">
+                  <span style="display: flex">
                     <svg
                       style="margin-right: 5px"
                       xmlns="http://www.w3.org/2000/svg"
@@ -126,122 +161,140 @@
                     </svg>
                     <h2 class="tilt-card-title">My Portfolio Website</h2>
                   </span>
-                    <p class="tilt-card-desc">
-                      A website to showcase my projects and skills
-                    </p>
-                    <div class="tilt-card-stack">
-                      <span class="tilt-card-stack-item">HTML</span>
-                      <span class="tilt-card-stack-item">CSS</span>
-                      <span class="tilt-card-stack-item">JavaScript</span>
-                    </div>
-                    <p class="tilt-card-desc-more">React Version is in under development</p>
+                  <p class="tilt-card-desc">
+                    A website to showcase my projects and skills
+                  </p>
+                  <div class="tilt-card-stack">
+                    <span class="tilt-card-stack-item">HTML</span>
+                    <span class="tilt-card-stack-item">CSS</span>
+                    <span class="tilt-card-stack-item">JavaScript</span>
                   </div>
+                  <p class="tilt-card-desc-more">
+                    React Version is in under development
+                  </p>
                 </div>
-                <img
-                  src="resources/image_bw.webp"
-                  alt="My Portfolio Website"
-                  class="tilt-card-image"
-                />
               </div>
+              <img
+                src="resources/image_bw.webp"
+                alt="My Portfolio Website"
+                class="tilt-card-image"
+              />
             </div>
-          </a>
+          </div>
+        </a>
 
-      <a 
-            class="link-to-project" 
-            href="https://github.com/jay-sukheja1/to-do-list-React" 
-            target="_blank"
-          >
-            <div class="tilt-card-link">
-              <div class="tilt-card">
-                <div class="tilt-card-header">
-                  <div class="tilt-card-text">
-                    <span style="display: flex">
+        <a
+          class="link-to-project"
+          href="https://github.com/jay-sukheja1/to-do-list-React"
+          target="_blank"
+        >
+          <div class="tilt-card-link">
+            <div class="tilt-card">
+              <div class="tilt-card-header">
+                <div class="tilt-card-text">
+                  <span style="display: flex">
                     <svg
-                        style="margin-right: 5px"
-                        xmlns="http://www.w3.org/2000/svg"
-                        width="24"
-                        height="24"
-                        viewBox="0 0 24 24"
-                        fill="none"
-                        stroke="currentColor"
-                        stroke-width="2"
-                        stroke-linecap="round"
-                        stroke-linejoin="round"
-                        class="lucide lucide-list-todo-icon lucide-list-todo"
-                      >
-                        <path d="M13 5h8" />
-                        <path d="M13 12h8" />
-                        <path d="M13 19h8" />
-                        <path d="m3 17 2 2 4-4" />
-                        <rect x="3" y="4" width="6" height="6" rx="1" />
-                      </svg>
+                      style="margin-right: 5px"
+                      xmlns="http://www.w3.org/2000/svg"
+                      width="24"
+                      height="24"
+                      viewBox="0 0 24 24"
+                      fill="none"
+                      stroke="currentColor"
+                      stroke-width="2"
+                      stroke-linecap="round"
+                      stroke-linejoin="round"
+                      class="lucide lucide-list-todo-icon lucide-list-todo"
+                    >
+                      <path d="M13 5h8" />
+                      <path d="M13 12h8" />
+                      <path d="M13 19h8" />
+                      <path d="m3 17 2 2 4-4" />
+                      <rect x="3" y="4" width="6" height="6" rx="1" />
+                    </svg>
                     <h2 class="tilt-card-title">Modern To-do List</h2>
                   </span>
-                    <p class="tilt-card-desc">
-                      A modern to-do list application with a
-                      variety of features
-                    </p>
-                    <div class="tilt-card-stack">
-                      <span class="tilt-card-stack-item">React</span>
-                    </div>
-                    <p class="tilt-card-desc-more">It contains more useful features like Priority, sorting, Show incomplete and more</p>
+                  <p class="tilt-card-desc">
+                    A modern to-do list application with a variety of features
+                  </p>
+                  <div class="tilt-card-stack">
+                    <span class="tilt-card-stack-item">React</span>
                   </div>
+                  <p class="tilt-card-desc-more">
+                    It contains more useful features like Priority, sorting,
+                    Show incomplete and more
+                  </p>
                 </div>
-                <img
-                  src="resources/image.webp"
-                  alt="My Portfolio Website"
-                  class="tilt-card-image"
-                />
               </div>
+              <img
+                src="resources/image.webp"
+                alt="My Portfolio Website"
+                class="tilt-card-image"
+              />
             </div>
-          </a>
-    </div>
-
-    <div class="explore-wrap">
-      <a href="work.html" class="explore-btn">
-        <!-- <span class="explore-dot"></span> -->
-        Explore more
-      </a>
-    </div>
-  </section>
-
-  <!-- ── CTA ── -->
-  <div class="cta-wrapper">
-    <div class="cta-section">
-      <div>
-        <span class="cta-eyebrow">That's all for now.</span>
-        <h2 class="cta-title">Got a project in mind?<br>Let's talk</h2>
+          </div>
+        </a>
       </div>
-      <a class="cta-circle" id="ctaCircleBtn" style="cursor: pointer;"><span>Get in touch</span></a>
-    </div>
-  </div>
 
-  <!-- ── FOOTER ── -->
-  <footer>
-    <div class="footer-item">
-      <span class="footer-label">Email</span>
-      <a href="mailto:jaysukheja1@gmail.com">jaysukheja1@gmail/outlook.com</a>
+      <div class="explore-wrap">
+        <a href="work.html" class="explore-btn">
+          <!-- <span class="explore-dot"></span> -->
+          Explore more
+        </a>
+      </div>
+    </section>
+
+    <!-- ── CTA ── -->
+    <div class="cta-wrapper">
+      <div class="cta-section">
+        <div>
+          <span class="cta-eyebrow">That's all for now.</span>
+          <h2 class="cta-title">Got a project in mind?<br />Let's talk</h2>
+        </div>
+        <a class="cta-circle" id="ctaCircleBtn" style="cursor: pointer"
+          ><span>Get in touch</span></a
+        >
+      </div>
     </div>
-    <div class="footer-item">
-      <span class="footer-label">Phone</span>
-      <p>(+91) 9016608762</p>
-    </div>
-    <div class="bottom-bar-socials">
-      <!-- GitHub -->
-      <a href="https://github.com/jay-sukheja1" target="_blank" class="bottom-social-btn" id="pill-github">
-        <svg viewBox="0 0 24 24">
-          <path
-            d="M12 .3C5.37.3 0 5.67 0 12.3c0 5.3 3.44 9.8 8.2 11.38.6.11.82-.26.82-.57v-2c-3.34.72-4.04-1.61-4.04-1.61-.55-1.39-1.34-1.76-1.34-1.76-1.09-.75.08-.73.08-.73 1.2.08 1.84 1.23 1.84 1.23 1.07 1.83 2.8 1.3 3.49 1 .1-.78.42-1.3.76-1.6-2.67-.3-5.47-1.33-5.47-5.93 0-1.31.47-2.38 1.24-3.22-.14-.3-.54-1.52.11-3.17 0 0 1-.32 3.3 1.23a11.5 11.5 0 0 1 3-.4c1.02 0 2.04.13 3 .4 2.28-1.55 3.29-1.23 3.29-1.23.65 1.65.25 2.87.12 3.17.77.84 1.23 1.91 1.23 3.22 0 4.61-2.8 5.63-5.48 5.92.43.37.81 1.1.81 2.22v3.29c0 .32.21.69.82.57C20.56 22.1 24 17.6 24 12.3 24 5.67 18.63.3 12 .3z" />
-        </svg>
-      </a>
-      <!-- LinkedIn -->
-      <a href="https://www.linkedin.com/in/jay-sukheja" target="_blank" class="bottom-social-btn" id="pill-linkedin">
-        <svg viewBox="0 0 24 24">
-          <path
-            d="M20.45 20.45h-3.55v-5.57c0-1.33-.03-3.04-1.85-3.04-1.85 0-2.13 1.45-2.13 2.94v5.67H9.37V9h3.41v1.56h.05c.47-.9 1.63-1.85 3.37-1.85 3.6 0 4.27 2.37 4.27 5.46v6.28zM5.34 7.43a2.06 2.06 0 1 1 0-4.12 2.06 2.06 0 0 1 0 4.12zM7.12 20.45H3.56V9h3.56v11.45zM22.22 0H1.77C.79 0 0 .77 0 1.73v20.54C0 23.23.79 24 1.77 24h20.45C23.2 24 24 23.23 24 22.27V1.73C24 .77 23.2 0 22.22 0z" />
-        </svg>
-      </a>
-      <!-- Instagram
+
+    <!-- ── FOOTER ── -->
+    <footer>
+      <div class="footer-item">
+        <span class="footer-label">Email</span>
+        <a href="mailto:jaysukheja1@gmail.com">jaysukheja1@gmail/outlook.com</a>
+      </div>
+      <div class="footer-item">
+        <span class="footer-label">Phone</span>
+        <p>(+91) 9016608762</p>
+      </div>
+      <div class="bottom-bar-socials">
+        <!-- GitHub -->
+        <a
+          href="https://github.com/jay-sukheja1"
+          target="_blank"
+          class="bottom-social-btn"
+          id="pill-github"
+        >
+          <svg viewBox="0 0 24 24">
+            <path
+              d="M12 .3C5.37.3 0 5.67 0 12.3c0 5.3 3.44 9.8 8.2 11.38.6.11.82-.26.82-.57v-2c-3.34.72-4.04-1.61-4.04-1.61-.55-1.39-1.34-1.76-1.34-1.76-1.09-.75.08-.73.08-.73 1.2.08 1.84 1.23 1.84 1.23 1.07 1.83 2.8 1.3 3.49 1 .1-.78.42-1.3.76-1.6-2.67-.3-5.47-1.33-5.47-5.93 0-1.31.47-2.38 1.24-3.22-.14-.3-.54-1.52.11-3.17 0 0 1-.32 3.3 1.23a11.5 11.5 0 0 1 3-.4c1.02 0 2.04.13 3 .4 2.28-1.55 3.29-1.23 3.29-1.23.65 1.65.25 2.87.12 3.17.77.84 1.23 1.91 1.23 3.22 0 4.61-2.8 5.63-5.48 5.92.43.37.81 1.1.81 2.22v3.29c0 .32.21.69.82.57C20.56 22.1 24 17.6 24 12.3 24 5.67 18.63.3 12 .3z"
+            />
+          </svg>
+        </a>
+        <!-- LinkedIn -->
+        <a
+          href="https://www.linkedin.com/in/jay-sukheja"
+          target="_blank"
+          class="bottom-social-btn"
+          id="pill-linkedin"
+        >
+          <svg viewBox="0 0 24 24">
+            <path
+              d="M20.45 20.45h-3.55v-5.57c0-1.33-.03-3.04-1.85-3.04-1.85 0-2.13 1.45-2.13 2.94v5.67H9.37V9h3.41v1.56h.05c.47-.9 1.63-1.85 3.37-1.85 3.6 0 4.27 2.37 4.27 5.46v6.28zM5.34 7.43a2.06 2.06 0 1 1 0-4.12 2.06 2.06 0 0 1 0 4.12zM7.12 20.45H3.56V9h3.56v11.45zM22.22 0H1.77C.79 0 0 .77 0 1.73v20.54C0 23.23.79 24 1.77 24h20.45C23.2 24 24 23.23 24 22.27V1.73C24 .77 23.2 0 22.22 0z"
+            />
+          </svg>
+        </a>
+        <!-- Instagram
         <a href="https://www.instagram.com/jay.sukheja.1?igsh=MTNsOWhzbXpocmdsaw%3D%3D" target="_blank" class="bottom-social-btn" id="pill-instagram">
           <svg viewBox="0 0 24 24"><path d="M12 2.16c3.2 0 3.58.01 4.85.07 3.25.15 4.77 1.69 4.92 4.92.06 1.27.07 1.65.07 4.85 0 3.2-.01 3.58-.07 4.85-.15 3.23-1.66 4.77-4.92 4.92-1.27.06-1.64.07-4.85.07-3.2 0-3.58-.01-4.85-.07-3.26-.15-4.77-1.7-4.92-4.92C2.17 15.58 2.16 15.2 2.16 12c0-3.2.01-3.58.07-4.85C2.38 3.85 3.9 2.31 7.15 2.23 8.42 2.17 8.8 2.16 12 2.16zm0-2.16C8.74 0 8.33.01 7.05.07 2.7.27.27 2.7.07 7.05.01 8.33 0 8.74 0 12c0 3.26.01 3.67.07 4.95C.27 21.3 2.7 23.73 7.05 23.93 8.33 23.99 8.74 24 12 24c3.26 0 3.67-.01 4.95-.07 4.35-.2 6.78-2.62 6.98-6.98C23.99 15.67 24 15.26 24 12c0-3.26-.01-3.67-.07-4.95C23.73 2.7 21.3.27 16.95.07 15.67.01 15.26 0 12 0zm0 5.84a6.16 6.16 0 1 0 0 12.32A6.16 6.16 0 0 0 12 5.84zM12 16a4 4 0 1 1 0-8 4 4 0 0 1 0 8zm6.4-11.85a1.44 1.44 0 1 0 0 2.88 1.44 1.44 0 0 0 0-2.88z"/></svg>
         </a>
@@ -249,66 +302,90 @@
         <a href="https://me.developers.google.com/u/111715336896388096176" class="bottom-social-btn" id="pill-external" target="_blank">
           <svg viewBox="0 0 48 48"><path d="M45.12 24.5c0-1.56-.14-3.06-.4-4.5H24v8.51h11.84c-.51 2.75-2.06 5.08-4.39 6.64v5.52h7.11c4.16-3.83 6.56-9.47 6.56-16.17zM24 46c5.94 0 10.92-1.97 14.56-5.35l-7.11-5.52c-1.97 1.32-4.49 2.11-7.45 2.11-5.73 0-10.58-3.87-12.31-9.07H4.34v5.7C7.96 41.07 15.4 46 24 46zm-12.31-17.82c-.44-1.32-.69-2.73-.69-4.18s.25-2.86.69-4.18v-5.7H4.34C2.85 17.09 2 20.45 2 24s.85 6.91 2.34 9.88l7.35-5.7zm12.31-17.44c3.23 0 6.14 1.11 8.43 3.29l6.32-6.32C34.91 3.84 29.93 1.5 24 1.5 15.4 1.5 7.96 6.43 4.34 13.7l7.35 5.7c1.73-5.2 6.58-9.06 12.31-9.06z"/></svg>
         </a> -->
+      </div>
+    </footer>
+
+    <!-- ── BOTTOM BAR ── -->
+    <div class="bottom-bar dot-grid-container">
+      <div class="dot-grid-bg"></div>
+      <p class="bottom-bar-eyebrow">your friendly chaos creator</p>
+      <p class="bottom-bar-name">jaykun</p>
+      <button
+        class="bottom-bar-arrow"
+        onclick="window.scrollTo({ top: 0, behavior: 'smooth' })"
+        aria-label="Back to top"
+      >
+        <svg
+          viewBox="0 0 24 24"
+          fill="none"
+          stroke="#000"
+          stroke-width="2.2"
+          stroke-linecap="round"
+          stroke-linejoin="round"
+        >
+          <path d="M5 19L19 5M19 5H9M19 5v10" />
+        </svg>
+      </button>
     </div>
-  </footer>
 
-  <!-- ── BOTTOM BAR ── -->
-  <div class="bottom-bar dot-grid-container">
-    <div class="dot-grid-bg"></div>
-    <p class="bottom-bar-eyebrow">your friendly chaos creator</p>
-    <p class="bottom-bar-name">jaykun</p>
-    <button class="bottom-bar-arrow" onclick="window.scrollTo({top:0,behavior:'smooth'})" aria-label="Back to top">
-      <svg viewBox="0 0 24 24" fill="none" stroke="#000" stroke-width="2.2" stroke-linecap="round"
-        stroke-linejoin="round">
-        <path d="M5 19L19 5M19 5H9M19 5v10" />
-      </svg>
-    </button>
-  </div>
-
-  <script>
-    const cursor = document.getElementById('cursor');
-    const follower = document.getElementById('cursorFollower');
-    let mx = 0, my = 0, fx = 0, fy = 0;
-    document.addEventListener('mousemove', e => {
-      mx = e.clientX; my = e.clientY;
-      cursor.style.left = mx + 'px'; cursor.style.top = my + 'px';
-    });
-    (function loop() {
-      fx += (mx - fx) * 0.13; fy += (my - fy) * 0.13;
-      follower.style.left = fx + 'px'; follower.style.top = fy + 'px';
-      requestAnimationFrame(loop);
-    })();
-    const obs = new IntersectionObserver(entries => {
-      entries.forEach(e => {
-        if (e.isIntersecting) { e.target.style.opacity = '1'; e.target.style.transform = 'translateY(0)'; }
+    <script>
+      const cursor = document.getElementById("cursor");
+      const follower = document.getElementById("cursorFollower");
+      let mx = 0,
+        my = 0,
+        fx = 0,
+        fy = 0;
+      document.addEventListener("mousemove", (e) => {
+        mx = e.clientX;
+        my = e.clientY;
+        cursor.style.left = mx + "px";
+        cursor.style.top = my + "px";
       });
-    }, { threshold: 0.08 });
-    document.querySelectorAll('.project-card, .bio-section, .cta-section').forEach((el, i) => {
-      el.style.opacity = '0';
-      el.style.transform = 'translateY(28px)';
-      el.style.transition = `opacity .55s ease ${i * .07}s, transform .55s cubic-bezier(.22,1,.36,1) ${i * .07}s`;
-      obs.observe(el);
-    });
+      (function loop() {
+        fx += (mx - fx) * 0.13;
+        fy += (my - fy) * 0.13;
+        follower.style.left = fx + "px";
+        follower.style.top = fy + "px";
+        requestAnimationFrame(loop);
+      })();
+      const obs = new IntersectionObserver(
+        (entries) => {
+          entries.forEach((e) => {
+            if (e.isIntersecting) {
+              e.target.style.opacity = "1";
+              e.target.style.transform = "translateY(0)";
+            }
+          });
+        },
+        { threshold: 0.08 },
+      );
+      document
+        .querySelectorAll(".project-card, .bio-section, .cta-section")
+        .forEach((el, i) => {
+          el.style.opacity = "0";
+          el.style.transform = "translateY(28px)";
+          el.style.transition = `opacity .55s ease ${i * 0.07}s, transform .55s cubic-bezier(.22,1,.36,1) ${i * 0.07}s`;
+          obs.observe(el);
+        });
 
-    // Get In Touch Footer Accent Toggle & Smooth Scroll
-    const ctaCircleBtn = document.getElementById('ctaCircleBtn');
-    const footerEl = document.querySelector('footer');
+      // Get In Touch Footer Accent Toggle & Smooth Scroll
+      const ctaCircleBtn = document.getElementById("ctaCircleBtn");
+      const footerEl = document.querySelector("footer");
 
-    if (ctaCircleBtn && footerEl) {
-      ctaCircleBtn.addEventListener('click', (e) => {
-        e.preventDefault();
-        footerEl.classList.toggle('active');
-        footerEl.scrollIntoView({ behavior: 'smooth', block: 'center' });
+      if (ctaCircleBtn && footerEl) {
+        ctaCircleBtn.addEventListener("click", (e) => {
+          e.preventDefault();
+          footerEl.classList.toggle("active");
+          footerEl.scrollIntoView({ behavior: "smooth", block: "center" });
 
-        // Re-trigger animation effect
-        footerEl.classList.remove('pulse-anim');
-        void footerEl.offsetWidth; // trigger reflow
-        footerEl.classList.add('pulse-anim');
-      });
-    }
-  </script>
-  <script src="https://cdnjs.cloudflare.com/ajax/libs/three.js/r128/three.min.js"></script>
-  <script src="js/tilt-card.js" defer></script>
-</body>
-
+          // Re-trigger animation effect
+          footerEl.classList.remove("pulse-anim");
+          void footerEl.offsetWidth; // trigger reflow
+          footerEl.classList.add("pulse-anim");
+        });
+      }
+    </script>
+    <script src="https://cdnjs.cloudflare.com/ajax/libs/three.js/r128/three.min.js"></script>
+    <script src="js/tilt-card.js" defer></script>
+  </body>
 </html>

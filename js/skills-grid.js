@@ -30,7 +30,10 @@
       // Handle Click/Tap on Header or Panel
       header.addEventListener("click", (e) => {
         // Prevent click if user clicked a link or interactive control inside
-        if (e.target.closest("a, button") && !e.target.closest(".panel-arrow")) {
+        if (
+          e.target.closest("a, button") &&
+          !e.target.closest(".panel-arrow")
+        ) {
           return;
         }
 
@@ -67,4 +70,3 @@
     initAccordion();
   }
 })();
-

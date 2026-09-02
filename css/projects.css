@@ -229,7 +229,7 @@ body {
 
 @view-transition {
   .special-words:hover {
-    font-family::after
+    font-family: ::after
   }
 }
 
