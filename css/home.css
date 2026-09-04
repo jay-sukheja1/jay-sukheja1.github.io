@@ -1044,42 +1044,6 @@ footer.active .bottom-social-btn:hover svg {
   .project-name {
     font-size: clamp(18px, 4.5vw, 24px);
   }
-
-  .cta-section {
-    flex-direction: column;
-    align-items: flex-start;
-    padding: 48px 24px;
-    gap: 32px;
-  }
-
-  footer {
-    padding: 24px 24px 32px;
-    flex-direction: column;
-    gap: 24px;
-    align-items: flex-start;
-  }
-
-  .bottom-bar {
-    padding: 36px 24px 100px;
-    min-height: 240px;
-    display: flex;
-    flex-direction: column;
-    justify-content: space-between;
-  }
-
-  .bottom-bar-eyebrow {
-    font-size: clamp(20px, 4.5vw, 32px);
-    padding-right: 64px;
-    margin-bottom: 0;
-    line-height: 1.35;
-  }
-
-  .bottom-bar-name {
-    font-size: clamp(48px, 13vw, 96px);
-    white-space: normal;
-    word-break: break-word;
-    margin-top: 24px;
-  }
 }
 
 @media (max-width: 768px) {
