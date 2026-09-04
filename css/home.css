@@ -164,9 +164,26 @@ body {
   text-decoration: none;
 }
 
+.nav-logo-right {
+  font-family: var(--font-skranji);
+  font-weight: 500;
+  font-size: 20px;
+  color: var(--white);
+  text-decoration: none;
+}
+
 .nav-logo::selection {
   background: var(--white);
   color: var(--black);
+}
+
+.nav-logo-right::selection {
+  background: var(--white);
+  color: var(--black);
+}
+
+.nav-logo-right:visited {
+  color: var(--white);
 }
 
 .nav-links {
