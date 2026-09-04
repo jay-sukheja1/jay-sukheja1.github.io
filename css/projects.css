@@ -49,13 +49,16 @@ body {
   pointer-events: none;
   z-index: 9999;
   transform: translate(-50%, -50%);
+  transition:
+    width 0.2s,
+    height 0.2s;
   mix-blend-mode: difference;
 }
 
 .cursor-follower {
   width: 36px;
   height: 36px;
-  border: 1.5px solid rgba(255, 255, 255, 0.3);
+  border: 1.5px solid rgba(255, 255, 255, 0.4);
   border-radius: 50%;
   position: fixed;
   top: 0;
@@ -63,7 +66,12 @@ body {
   pointer-events: none;
   z-index: 9998;
   transform: translate(-50%, -50%);
-  transition: left .12s ease, top .12s ease;
+  transition:
+    width 0.3s,
+    height 0.3s,
+    left 0.12s ease,
+    top 0.12s ease;
+  mix-blend-mode: difference;
 }
 
 @media (hover: none) {
