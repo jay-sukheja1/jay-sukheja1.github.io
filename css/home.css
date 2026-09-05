@@ -1065,8 +1065,9 @@ footer.active .bottom-social-btn:hover svg {
 
 @media (max-width: 768px) {
   .bottom-bar-socials {
-    padding: 4px 8px;
-    gap: 6px;
+    margin-top : 5px;
+    padding: 0;
+    /* gap: 6px; */
   }
 
   .bottom-social-btn {
@@ -1084,6 +1085,28 @@ footer.active .bottom-social-btn:hover svg {
     height: 46px;
     top: 32px;
     right: 24px;
+  }
+
+  .bottom-bar {
+    padding: 36px 24px 100px;
+    min-height: 240px;
+    display: flex;
+    flex-direction: column;
+    justify-content: space-between;
+  }
+
+  .bottom-bar-eyebrow {
+    font-size: clamp(20px, 4.5vw, 32px);
+    padding-right: 64px;
+    margin-bottom: 0;
+    line-height: 1.35;
+  }
+
+  .bottom-bar-name {
+    font-size: clamp(48px, 13vw, 96px);
+    white-space: normal;
+    word-break: break-word;
+    margin-top: 24px;
   }
 
   .nav-pill {

@@ -863,8 +863,9 @@ footer.active .bottom-social-btn:hover svg {
   }
 
   .bottom-bar-socials {
-    padding: 4px 8px;
-    gap: 6px;
+    margin-top : 5px;
+    padding: 0;
+    /* gap: 6px; */
   }
 
   .bottom-social-btn {
@@ -885,6 +886,28 @@ footer.active .bottom-social-btn:hover svg {
   .bottom-social-btn {
     width: 36px;
     height: 36px;
+  }
+
+  .bottom-bar {
+    padding: 36px 24px 100px;
+    min-height: 240px;
+    display: flex;
+    flex-direction: column;
+    justify-content: space-between;
+  }
+
+  .bottom-bar-eyebrow {
+    font-size: clamp(20px, 4.5vw, 32px);
+    padding-right: 64px;
+    margin-bottom: 0;
+    line-height: 1.35;
+  }
+
+  .bottom-bar-name {
+    font-size: clamp(48px, 13vw, 96px);
+    white-space: normal;
+    word-break: break-word;
+    margin-top: 24px;
   }
 
   .nav-pill {
@@ -960,6 +983,13 @@ footer.active .bottom-social-btn:hover svg {
   .bottom-bar-name {
     font-size: clamp(44px, 14vw, 68px);
     margin-top: 20px;
+  }
+  
+  .bottom-bar-arrow {
+    width: 40px;
+    height: 40px;
+    top: 26px;
+    right: 16px;
   }
 }
 
