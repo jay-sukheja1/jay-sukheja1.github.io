@@ -388,6 +388,13 @@ body {
     flex-direction: column;
     gap: 20px;
   }
+
+  footer {
+    padding: 24px 24px 32px;
+    flex-direction: column;
+    /* gap: 24px; */
+    align-items: flex-start;
+  }
 }
 
 /* ── Projects Grid ── */
@@ -848,6 +855,13 @@ footer.active .bottom-social-btn:hover svg {
     gap: 8px;
   }
 
+  footer {
+    padding: 24px 24px 32px;
+    flex-direction: column;
+    gap: 15px;
+    align-items: flex-start;
+  }
+
   .bottom-bar-socials {
     padding: 4px 8px;
     gap: 6px;
@@ -883,7 +897,6 @@ footer.active .bottom-social-btn:hover svg {
     padding: 8px 12px;
     border-radius: 20px;
     background: transparent;
-    border: 1px solid rgba(255, 255, 255, 0.12);
     display: flex;
     gap: 8px;
   }
@@ -921,7 +934,10 @@ footer.active .bottom-social-btn:hover svg {
   }
 
   footer {
-    padding: 20px 16px 28px;
+    padding: 24px 24px 32px;
+    flex-direction: column;
+    /* gap: 24px; */
+    align-items: flex-start;
   }
 
   .bottom-bar {
