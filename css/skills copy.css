@@ -712,8 +712,9 @@ footer.active .bottom-social-btn:hover svg {
   }
 
   .bottom-bar-socials {
-    padding: 4px 8px;
-    gap: 6px;
+    margin-top : 5px;
+    padding: 0;
+    /* gap: 6px; */
   }
 
   .bottom-social-btn {
