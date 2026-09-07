@@ -156,7 +156,7 @@ body {
   background: transparent;
 }
 
-.blog-redirect {
+/* .blog-redirect {
   opacity: 0;
   transition: opacity 0.3s ease, visibility 0.3s ease;
 }
@@ -164,7 +164,7 @@ body {
 .blog-redirect:hover {
   opacity: 1;
   /* visibility: visible; */
-}
+} */
 
 .nav-logo {
   font-family: var(--font-skranji);
