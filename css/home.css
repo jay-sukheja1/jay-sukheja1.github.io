@@ -187,6 +187,10 @@ body {
   color: var(--black);
 }
 
+.nav-logo:visited {
+  color: var(--white);
+}
+
 .nav-logo-right::selection {
   background: var(--white);
   color: var(--black);
