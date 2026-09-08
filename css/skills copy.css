@@ -815,7 +815,6 @@ footer.active .bottom-social-btn:hover svg {
     padding: 8px 12px;
     border-radius: 20px;
     background: transparent;
-    border: 1px solid rgba(255, 255, 255, 0.12);
     display: flex;
     gap: 8px;
   }
