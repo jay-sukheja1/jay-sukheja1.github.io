@@ -18,7 +18,7 @@
   --gray: #616161;
   --gray-light: #aaaaaa;
   --gray-border: #aeaeae;
-  --accent: #455ce9;
+  --accent: #bb78bf;
   --font-inter: "Inter", sans-serif;
   --font-dm: "DM Sans", sans-serif;
   --font-skranji: "Skranji", sans-serif;
@@ -730,16 +730,24 @@ body {
 
 /* ── Footer ── */
 footer {
-  padding: 0 clamp(32px, 6.9vw, 133px) 32px;
-  border-top: 1px solid var(--black);
+  max-height: 0;
+  opacity: 0;
+  overflow: hidden;
+  padding: 0 clamp(32px, 6.9vw, 133px);
+  border-top: 0px solid transparent;
   display: flex;
   gap: 57px;
-  padding-top: 24px;
-  background: var(--white);
+  background: var(--accent);
   position: relative;
+  visibility: hidden;
+  pointer-events: none;
   transition:
+    max-height 0.65s cubic-bezier(0.16, 1, 0.3, 1),
+    opacity 0.45s ease,
+    padding 0.65s cubic-bezier(0.16, 1, 0.3, 1),
+    border-color 0.4s ease,
     background 0.6s cubic-bezier(0.16, 1, 0.3, 1),
-    border-color 0.6s cubic-bezier(0.16, 1, 0.3, 1);
+    visibility 0.65s;
 }
 
 @keyframes footerAccentPulse {
@@ -770,8 +778,48 @@ footer.pulse-anim {
 }
 
 footer.active {
+  max-height: 250px;
+  opacity: 1;
+  visibility: visible;
+  pointer-events: auto;
+  padding-top: 24px;
+  padding-bottom: 32px;
   background: var(--accent);
-  border-top-color: var(--accent);
+  border-top: 1px solid var(--accent);
+}
+
+.footer-item,
+footer .bottom-bar-socials {
+  transform: translateY(40px);
+  opacity: 0;
+  transition:
+    transform 0.4s cubic-bezier(0.16, 1, 0.3, 1),
+    opacity 0.3s ease;
+  transition-delay: 0s;
+}
+
+footer.active .footer-item,
+footer.active .bottom-bar-socials {
+  transform: translateY(0);
+  opacity: 1;
+}
+
+footer.active .footer-item:nth-child(1) {
+  transition:
+    transform 0.55s cubic-bezier(0.16, 1, 0.3, 1) 0.08s,
+    opacity 0.45s ease 0.08s;
+}
+
+footer.active .footer-item:nth-child(2) {
+  transition:
+    transform 0.55s cubic-bezier(0.16, 1, 0.3, 1) 0.16s,
+    opacity 0.45s ease 0.16s;
+}
+
+footer.active .bottom-bar-socials {
+  transition:
+    transform 0.55s cubic-bezier(0.16, 1, 0.3, 1) 0.24s,
+    opacity 0.45s ease 0.24s;
 }
 
 footer.active::selection {
@@ -1147,11 +1195,16 @@ footer.active .bottom-social-btn:hover svg {
     height: 18px;
   }
 
-  .footer {
-    padding: 24px 24px 32px;
+  footer {
+    padding: 0 24px;
     flex-direction: column;
-    gap: 24px;
+    gap: 20px;
     align-items: flex-start;
+  }
+
+  footer.active {
+    padding: 24px 24px 32px;
+    max-height: 480px;
   }
 }
 
@@ -1173,10 +1226,15 @@ footer.active .bottom-social-btn:hover svg {
   }
 
   footer {
-    padding: 24px 24px 32px;
+    padding: 0 16px;
     flex-direction: column;
-    gap: 15px;
+    gap: 16px;
     align-items: flex-start;
+  }
+
+  footer.active {
+    padding: 24px 16px 32px;
+    max-height: 480px;
   }
 
   .bottom-bar {

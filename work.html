@@ -485,13 +485,19 @@
       if (ctaCircleBtn && footerEl) {
         ctaCircleBtn.addEventListener("click", (e) => {
           e.preventDefault();
-          footerEl.classList.toggle("active");
-          footerEl.scrollIntoView({ behavior: "smooth", block: "center" });
+          const isActive = footerEl.classList.toggle("active");
 
-          // Re-trigger animation effect
-          footerEl.classList.remove("pulse-anim");
-          void footerEl.offsetWidth; // trigger reflow
-          footerEl.classList.add("pulse-anim");
+          if (isActive) {
+            // Re-trigger animation effect
+            footerEl.classList.remove("pulse-anim");
+            void footerEl.offsetWidth; // trigger reflow
+            footerEl.classList.add("pulse-anim");
+
+            // Smooth scroll into view after expansion begins
+            setTimeout(() => {
+              footerEl.scrollIntoView({ behavior: "smooth", block: "center" });
+            }, 80);
+          }
         });
       }
     </script>
