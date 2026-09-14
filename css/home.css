@@ -1127,7 +1127,7 @@ footer.active .bottom-social-btn:hover svg {
 
 @media (max-width: 768px) {
   .bottom-bar-socials {
-    margin-top : 5px;
+    margin-top: 5px;
     padding: 0;
     /* gap: 6px; */
   }
