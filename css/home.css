@@ -416,7 +416,7 @@ body {
   align-items: center;
   gap: 60px;
   padding: 80px clamp(32px, 6.9vw, 133px);
-  border-bottom: 1px solid #e5e5e5;
+  /* border-bottom: 1px solid #e5e5e5; */
 }
 
 .bio-section::selection {
