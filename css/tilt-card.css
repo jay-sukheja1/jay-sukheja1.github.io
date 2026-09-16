@@ -146,7 +146,7 @@
   max-width: none;
   /* aspect-ratio: 288 / 224; */
   object-fit: cover;
-
+  opacity: 0.85;
   border: 1px solid var(--tc-border, rgba(255, 255, 255, 0.12));
   border-radius: 6px;
 
@@ -156,6 +156,7 @@
 }
 
 .tilt-card:hover .tilt-card-image {
+  opacity: 0.6;
   transform: rotate(-3deg) translateY(-4px) translateX(-2px);
 }
 
