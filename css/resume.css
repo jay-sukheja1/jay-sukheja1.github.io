@@ -539,7 +539,7 @@ body::selection {
   font-size: 13px;
   font-weight: 450;
   color: var(--text-dark);
-  background: rgba(255, 255, 255, 0.45);
+  background: transparent;
   /* border: 1px solid var(--border-subtle); */
   backdrop-filter: blur(10px);
   -webkit-backdrop-filter: blur(10px);
