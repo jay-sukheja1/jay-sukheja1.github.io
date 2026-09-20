@@ -25,6 +25,7 @@
 
 html {
   scroll-behavior: smooth;
+  scroll-padding-top: 80px;
   background-color: var(--bg-sage);
 }
 
@@ -297,13 +298,23 @@ body::selection {
 
 .badge-available {
   border: 1px solid var(--bg-sage);
+  text-decoration: none;
+  color: var(--text-dark);
+  cursor: pointer;
   transition: all 0.3s ease;
 }
 
+.badge-available:visited,
+.badge-available:active,
+.badge-available:focus {
+  color: var(--text-dark);
+  text-decoration: none;
+}
+
 .badge-available:hover {
-  /* color: var(--accent-teal); */
   cursor: pointer;
   border: 1px solid var(--accent-teal);
+  color: var(--text-dark);
 }
 
 .pulse-dot {
@@ -378,6 +389,7 @@ body::selection {
   column-gap: 56px;
   row-gap: 32px;
   align-items: start;
+  scroll-margin-top: 80px;
 }
 
 .section-title {
@@ -734,12 +746,12 @@ button.contact-action-btn {
 .contact-action-btn.linkedin {
   background: #c8dff7;
   border-color: #4278ad;
-  color: #0A66C2;
+  color: #0a66c2;
 }
 
 .contact-action-btn.linkedin:hover {
-  background: #0A66C2;
-  border-color: #0A66C2;
+  background: #0a66c2;
+  border-color: #0a66c2;
   color: #fff;
   /* transform: translateY(-1px); */
 }

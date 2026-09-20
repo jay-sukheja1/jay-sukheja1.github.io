@@ -100,10 +100,15 @@
               </span>
             </div>
           </div>
-          <span class="hero-badge badge-available">
+          <a
+            href="#contact"
+            class="hero-badge badge-available"
+            title="Scroll to Contact section"
+            aria-label="Open to Internships - Jump to Contact section"
+          >
             <span class="pulse-dot" aria-hidden="true"></span>
             Open to Internships
-          </span>
+          </a>
         </div>
         <div class="hero-portrait-wrap">
           <img
@@ -797,6 +802,19 @@
           }
         });
       });
+
+      // Smooth scroll to contact section when clicking "Open to Internships" badge
+      const internshipBadge = document.querySelector(".badge-available");
+      if (internshipBadge) {
+        internshipBadge.addEventListener("click", (e) => {
+          const contactSection = document.getElementById("contact");
+          if (contactSection) {
+            e.preventDefault();
+            contactSection.scrollIntoView({ behavior: "smooth" });
+            history.pushState(null, "", "#contact");
+          }
+        });
+      }
 
       const cursor = document.getElementById("cursor");
       const follower = document.getElementById("cursorFollower");
