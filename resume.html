@@ -798,64 +798,25 @@
         });
       });
 
-      // ── Custom Cursor Tracking & Interactive Physics ──
       const cursor = document.getElementById("cursor");
       const follower = document.getElementById("cursorFollower");
-
-      if (cursor && follower) {
-        let mx = window.innerWidth / 2,
-          my = window.innerHeight / 2,
-          fx = window.innerWidth / 2,
-          fy = window.innerHeight / 2;
-        let isVisible = false;
-
-        document.addEventListener("mousemove", (e) => {
-          mx = e.clientX;
-          my = e.clientY;
-          cursor.style.left = mx + "px";
-          cursor.style.top = my + "px";
-
-          if (!isVisible) {
-            cursor.style.opacity = "1";
-            follower.style.opacity = "1";
-            isVisible = true;
-          }
-        });
-
-        document.addEventListener("mouseleave", () => {
-          cursor.style.opacity = "0";
-          follower.style.opacity = "0";
-          isVisible = false;
-        });
-
-        document.addEventListener("mouseenter", () => {
-          cursor.style.opacity = "1";
-          follower.style.opacity = "1";
-          isVisible = true;
-        });
-
-        (function loop() {
-          fx += (mx - fx) * 0.15;
-          fy += (my - fy) * 0.15;
-          follower.style.left = fx + "px";
-          follower.style.top = fy + "px";
-          requestAnimationFrame(loop);
-        })();
-
-        // Tactile scale on hover for interactive elements
-        const interactiveSelectors =
-          "a, button, [role='button'], .contact-action-btn, .cta-pill-btn, .badge-available, .nav-brand, .copy-btn, .nav-action-link";
-        document.querySelectorAll(interactiveSelectors).forEach((el) => {
-          el.addEventListener("mouseenter", () => {
-            cursor.classList.add("cursor-hover");
-            follower.classList.add("follower-hover");
-          });
-          el.addEventListener("mouseleave", () => {
-            cursor.classList.remove("cursor-hover");
-            follower.classList.remove("follower-hover");
-          });
-        });
-      }
+      let mx = 0,
+        my = 0,
+        fx = 0,
+        fy = 0;
+      document.addEventListener("mousemove", (e) => {
+        mx = e.clientX;
+        my = e.clientY;
+        cursor.style.left = mx + "px";
+        cursor.style.top = my + "px";
+      });
+      (function loop() {
+        fx += (mx - fx) * 0.13;
+        fy += (my - fy) * 0.13;
+        follower.style.left = fx + "px";
+        follower.style.top = fy + "px";
+        requestAnimationFrame(loop);
+      })();
     </script>
   </body>
 </html>

@@ -48,7 +48,7 @@ body::selection {
 .cursor {
   width: 10px;
   height: 10px;
-  background: var(--text-dark);
+  background: white;
   border-radius: 50%;
   position: fixed;
   top: 0;
@@ -91,8 +91,6 @@ body::selection {
     cursor: auto !important;
   }
 }
-
-
 
 /* ── STICKY TOP BAR ── */
 .top-nav {
