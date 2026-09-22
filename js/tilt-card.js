@@ -8,7 +8,7 @@
 */
 (function () {
   const ROTATION_FACTOR = 11; // matches <Tilt rotationFactor={11} /> default in TiltCard
-  const SPRING_STIFFNESS = 0.12; // approximates useSpring's default damping feel
+  const SPRING_STIFFNESS = 0.15; // approximates useSpring's default damping feel
 
   function initTiltCard(card) {
     if (card.dataset.tiltInit) return;
