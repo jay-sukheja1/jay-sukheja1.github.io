@@ -993,27 +993,76 @@ button.contact-action-btn {
 
 /* ── PRINT MEDIA QUERY ── */
 @media print {
+  /* Core Print Resets */
+  html, body {
+    background: #fff !important;
+    color: #000 !important;
+    -webkit-print-color-adjust: exact !important;
+    print-color-adjust: exact !important;
+    font-size: 9pt !important;
+  }
+
+  /* Hide Interactive/Unnecessary Elements */
   .top-nav,
   .contact-actions,
   .contact-card-actions,
   .contact-cta-box,
-  .resume-footer-right {
+  .resume-footer-right,
+  .cursor,
+  .cursor-follower,
+  .pulse-dot {
     display: none !important;
   }
 
+  /* Reset layout constraints */
   .page-container {
-    padding: 20px 0 !important;
+    padding: 0 !important;
+    margin: 0 auto !important;
     max-width: 100% !important;
   }
 
-  .portfolio-section {
-    page-break-inside: avoid;
-    padding: 30px 0 !important;
+  /* Typography Contrast */
+  h1, h2, h3, h4, h5, h6, p, span, li, a {
+    color: #000 !important;
+    text-decoration: none !important;
   }
 
+  /* Page Break Management */
+  .portfolio-section,
+  .timeline-entry,
+  .skills-card,
+  .contact-card-item,
+  .hero-section {
+    page-break-inside: avoid;
+    break-inside: avoid;
+  }
+
+  .portfolio-section {
+    padding: 15px 0 !important;
+  }
+
+  /* Refine components for print */
   .contact-card-item {
     box-shadow: none !important;
-    border: 1px solid #ddd !important;
+    border: 1px solid #ccc !important;
     background: #fff !important;
+  }
+
+  .timeline-line {
+    background-color: #ccc !important;
+  }
+  
+  .timeline-node {
+    border-color: #000 !important;
+    background: #fff !important;
+  }
+
+  .skills-grid {
+    gap: 10px !important;
+  }
+
+  /* Page Margin Settings */
+  @page {
+    margin: 1cm;
   }
 }
