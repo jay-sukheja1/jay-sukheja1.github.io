@@ -994,7 +994,7 @@ footer.active .bottom-social-btn:hover svg {
   border-color: rgba(255, 255, 255, 0.2);
   box-shadow:
     0 20px 50px rgba(0, 0, 0, 0.6),
-    0 0 35px rgba(69, 92, 233, 0.18);
+    0 0 35px rgb(232 148 228 / 0.1);
 }
 
 /* Accordion Header */
