@@ -279,7 +279,7 @@ body::selection {
   font-size: 13.5px;
   font-weight: 500;
   color: var(--text-dark);
-  /* background: rgba(255, 255, 255, 0.65); */
+   /*background: rgba(255, 255, 255, 0.65);*/
   /* border: 1px solid var(--border-subtle); */
   backdrop-filter: blur(10px);
   -webkit-backdrop-filter: blur(10px);
@@ -376,7 +376,7 @@ body::selection {
 
 .hero-portrait-wrap:hover .hero-portrait-blob {
   border-radius: 54% 46% 62% 38% / 58% 44% 56% 42%;
-  transform: translateY(-4px) scale(1.01);
+  transform: scale(1.01);
   box-shadow: 0 30px 60px -14px rgba(17, 24, 39, 0.22);
 }
 
