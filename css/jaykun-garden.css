@@ -1,0 +1,28 @@
+/* CSS for the jaykun garden animation in the footer */
+
+.bottom-bar-name-garden {
+  position: relative;
+  margin: 0 0 0em 0;
+  display: inline-block;
+}
+
+#jaykun-garden {
+  position: absolute;
+  top: -2.5em;
+  bottom: -1em;
+  left: -0.2em;
+  right: -0.2em;
+  pointer-events: none;
+  z-index: 1;
+  margin-bottom: 0;
+}
+
+#jaykun-garden canvas {
+  position: absolute;
+  inset: 0;
+  width: 100%;
+  height: 100%;
+  display: block;
+  touch-action: manipulation;
+  pointer-events: auto;
+}

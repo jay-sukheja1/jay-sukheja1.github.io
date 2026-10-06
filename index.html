@@ -25,18 +25,18 @@
         <div class="nav-right">
           <a class="resume-link" href="resume.html" target="_blank">
             Resume
-          <span class="resume-btn-arrow">
-            <svg
-              viewBox="0 0 24 24"
-              fill="none"
-              stroke="currentColor"
-              stroke-width="1.8"
-              stroke-linecap="round"
-              stroke-linejoin="round"
-            >
-              <path d="M7 17L17 7M7 7h10v10" />
-            </svg>
-          </span>
+            <span class="resume-btn-arrow">
+              <svg
+                viewBox="0 0 24 24"
+                fill="none"
+                stroke="currentColor"
+                stroke-width="1.8"
+                stroke-linecap="round"
+                stroke-linejoin="round"
+              >
+                <path d="M7 17L17 7M7 7h10v10" />
+              </svg>
+            </span>
           </a>
           <a
             href="https://discord.com/users/759457724357410817"
@@ -62,7 +62,11 @@
 
       <img src="resources/hero-background.webp" alt="Jay" class="hero-bg" />
       <div class="hero-overlay"></div>
-      <img src="resources/hero-foreground.webp" alt="Jay Cutout" class="hero-fg" />
+      <img
+        src="resources/hero-foreground.webp"
+        alt="Jay Cutout"
+        class="hero-fg"
+      />
 
       <div class="hero-content">
         <!-- Scrolling title -->
@@ -225,45 +229,49 @@
         </a>
 
         <a
-            class="link-to-project"
-            target="_blank"
-            href="https://github.com/TeamOrchestrators/drishti-frontend"
-          >
-            <div class="tilt-card-link">
-              <div class="tilt-card">
-                <div class="tilt-card-header">
-                  <div class="tilt-card-text">
-                    <span style="display: flex">
-                      <img src="resources/drishti-logo.svg" alt="DRISHTI Logo" style="width: 24px; height: 24px; margin-right: 5px;">
-                      <h2 class="tilt-card-title">DRISHTI</h2>
-                    </span>
+          class="link-to-project"
+          target="_blank"
+          href="https://github.com/TeamOrchestrators/drishti-frontend"
+        >
+          <div class="tilt-card-link">
+            <div class="tilt-card">
+              <div class="tilt-card-header">
+                <div class="tilt-card-text">
+                  <span style="display: flex">
+                    <img
+                      src="resources/drishti-logo.svg"
+                      alt="DRISHTI Logo"
+                      style="width: 24px; height: 24px; margin-right: 5px"
+                    />
+                    <h2 class="tilt-card-title">DRISHTI</h2>
+                  </span>
 
-                    <p class="tilt-card-desc">
-                      Real-time operations dashboard for the Indian Polar
-                      Research Station
-                    </p>
+                  <p class="tilt-card-desc">
+                    Real-time operations dashboard for the Indian Polar Research
+                    Station
+                  </p>
 
-                    <div class="tilt-card-stack">
-                      <span class="tilt-card-stack-item">React</span>
-                      <span class="tilt-card-stack-item">Tailwind</span>
-                      <span class="tilt-card-stack-item">Golang</span>
-                      <span class="tilt-card-stack-item">Postgres</span>
-                    </div>
-                    <p class="tilt-card-desc-more">
-                      Data Reporting & Intelligent Surveillance for High-impact
-                      Tracking Interface
-                    </p>
+                  <div class="tilt-card-stack">
+                    <span class="tilt-card-stack-item">React</span>
+                    <span class="tilt-card-stack-item">Tailwind</span>
+                    <span class="tilt-card-stack-item">Golang</span>
+                    <span class="tilt-card-stack-item">Postgres</span>
                   </div>
-                  <span class="tilt-card-tag">Hackathon</span>
+                  <p class="tilt-card-desc-more">
+                    Data Reporting & Intelligent Surveillance for High-impact
+                    Tracking Interface
+                  </p>
                 </div>
-                <img
-                  src="resources/drishti.webp"
-                  alt="To-Do List"
-                  class="tilt-card-image"
-                />
+                <span class="tilt-card-tag">Hackathon</span>
               </div>
+              <img
+                src="resources/drishti.webp"
+                alt="To-Do List"
+                class="tilt-card-image"
+              />
             </div>
-          </a>
+          </div>
+        </a>
       </div>
 
       <div class="explore-wrap">
@@ -339,7 +347,12 @@
     <div class="bottom-bar dot-grid-container">
       <div class="dot-grid-bg"></div>
       <p class="bottom-bar-eyebrow">your friendly chaos creator</p>
-      <p class="bottom-bar-name">jaykun</p>
+      <link rel="stylesheet" href="css/jaykun-garden.css">
+      <p class="bottom-bar-name bottom-bar-name-garden">
+        <span style="visibility: hidden;">jaykun</span>
+        <span id="jaykun-garden" role="img" aria-label="jaykun"></span>
+      </p>
+      <script src="js/jaykun-garden.js" defer></script>
       <button
         class="bottom-bar-arrow"
         onclick="window.scrollTo({ top: 0, behavior: 'smooth' })"
