@@ -7,9 +7,9 @@
   --bg-sage-glass: rgba(255, 255, 255, 0.332);
   --text-dark: black;
   --text-muted: darkgrey;
-  --accent-teal: #ff94e0;
+  --accent-teal: #78A4CB;
   --accent-teal-soft: rgba(181, 131, 174, 0.15);
-  --accent-teal-border: #ff94e0;
+  --accent-teal-border: #78A4CB;
   --border-subtle: rgba(17, 24, 39, 0.12);
   --font-main: "Sora", "Inter", -apple-system, BlinkMacSystemFont, sans-serif;
   --font-accent: "Skranji", serif;
@@ -719,8 +719,8 @@ button.contact-action-btn {
 }
 
 .contact-action-btn.primary:hover {
-  background: #a65ea9;
-  border-color: #a65ea9;
+  background: #5e84a9;
+  border-color: #5e8ca9;
   /* transform: translateY(-1px); */
 }
 
@@ -772,7 +772,7 @@ button.contact-action-btn {
 /* Callout Banner */
 .contact-cta-box {
   background: rgba(255, 255, 255, 0.45);
-  border: 1px solid rgba(187, 120, 191, 0.25);
+  border: 1px solid rgb(120 164 203);
   border-radius: 20px;
   padding: 30px;
   display: flex;
@@ -787,7 +787,7 @@ button.contact-action-btn {
 
 .contact-cta-box:hover {
   background: rgba(255, 255, 255, 0.6);
-  border-color: rgba(187, 120, 191, 0.45);
+  border-color: rgb(120 134 191 / 0.45);
 }
 
 .contact-cta-content {
