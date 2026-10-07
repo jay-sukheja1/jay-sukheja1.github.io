@@ -3,11 +3,12 @@
   const WORD = "jaykun";
   const COLORS = {
     text: "#FFFFFF",
-    red: "#FF1400",
+    b_wing: "#7b63b1",
+    b_1: "#e78ea0",
     flower: "#F9F8F5",
     stem: "#5D8A57",
     innerLine: "#F8DE7E",
-    blue: "#3257FF",
+    b_2: "#4f3f67",
     line: "#FFB4A8",
     vein: "#8B7D6B",
   };
@@ -891,19 +892,19 @@
       return pts;
     };
     for (const sd of [-1, 1]) {
-      B.fill(wing(0.46, 0.28, 0.36, 0.3, 0.5, sd), C.text);
-      B.fill(wing(0.55, -0.32, 0.55, 0.36, -0.55, sd), C.text);
-      if (o > 0.35) B.fill(wing(0.66, -0.4, 0.13, 0.11, 0, sd), C.red);
+      B.fill(wing(0.46, 0.28, 0.36, 0.3, 0.5, sd), C.b_wing);
+      B.fill(wing(0.55, -0.32, 0.55, 0.36, -0.55, sd), C.b_wing);
+      if (o > 0.35) B.fill(wing(0.66, -0.4, 0.13, 0.11, 0, sd), C.b_1);
     }
     const body = [];
     for (let k = 0; k < 18; k++) {
       const th = (k / 18) * Math.PI * 2;
       body.push(T(Math.cos(th) * 0.08, Math.sin(th) * 0.48));
     }
-    B.fill(body, C.blue);
+    B.fill(body, C.b_2);
     const lw = Math.max(0.8, s * 0.05);
-    B.stroke([T(0, -0.42), T(-0.14, -0.72), T(-0.24, -0.86)], C.blue, lw);
-    B.stroke([T(0, -0.42), T(0.14, -0.72), T(0.24, -0.86)], C.blue, lw);
+    B.stroke([T(0, -0.42), T(-0.14, -0.72), T(-0.24, -0.86)], C.b_2, lw);
+    B.stroke([T(0, -0.42), T(0.14, -0.72), T(0.24, -0.86)], C.b_2, lw);
   }
   /* ---- run ---- */
   function build() {
