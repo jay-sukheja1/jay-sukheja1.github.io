@@ -819,6 +819,24 @@ footer.active .bottom-social-btn:hover svg {
   height: 40%;
 }
 
+.bottom-bar-copyright {
+  position: absolute;
+  bottom: clamp(24px, 4vh, 60px);
+  right: clamp(32px, 3.6vw, 69px);
+  font-family: var(--font-mono);
+  font-size: clamp(12px, 1.1vw, 15px);
+  color: rgba(255, 255, 255, 0.6);
+  letter-spacing: 0.02em;
+  z-index: 2;
+  margin: 0;
+  pointer-events: auto;
+}
+
+.bottom-bar-copyright::selection {
+  background: var(--white);
+  color: var(--black);
+}
+
 .bottom-bar-socials {
   display: flex;
   align-items: center;
@@ -963,6 +981,12 @@ footer.active .bottom-social-btn:hover svg {
     margin-top: 24px;
   }
 
+  .bottom-bar-copyright {
+    bottom: 72px;
+    right: 24px;
+    font-size: 12px;
+  }
+
   .nav-pill {
     position: fixed;
     bottom: 20px;
@@ -1049,6 +1073,12 @@ footer.active .bottom-social-btn:hover svg {
   .bottom-bar-name {
     font-size: clamp(44px, 14vw, 68px);
     margin-top: 20px;
+  }
+
+  .bottom-bar-copyright {
+    bottom: 72px;
+    right: 16px;
+    font-size: 11px;
   }
   
   .bottom-bar-arrow {

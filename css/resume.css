@@ -1,6 +1,7 @@
 /* ── JAY SUKHEJA • RESUME STYLES ── */
 @import url("https://fonts.googleapis.com/css2?family=Sora:wght@100..800&display=swap");
 @import url("https://fonts.googleapis.com/css2?family=Skranji&display=swap");
+@import url("https://fonts.googleapis.com/css2?family=IBM+Plex+Mono:wght@400;500&display=swap");
 
 :root {
   --bg-sage: rgba(255, 255, 255, 0.322);
@@ -13,6 +14,7 @@
   --border-subtle: rgba(17, 24, 39, 0.12);
   --font-main: "Sora", "Inter", -apple-system, BlinkMacSystemFont, sans-serif;
   --font-accent: "Skranji", serif;
+  --font-mono: "IBM Plex Mono", monospace;
 }
 
 *,
@@ -867,6 +869,10 @@ button.contact-action-btn {
   flex-wrap: wrap;
   font-size: 13px;
   color: #6b7280;
+}
+
+.resume-footer-copy {
+  font-family: var(--font-mono);
 }
 
 .resume-footer-right {
