@@ -180,6 +180,26 @@ body {
   font-size: 20px;
   color: var(--white);
   text-decoration: none;
+  transition: all 0.5s cubic-bezier(0.16, 1, 0.3, 1);
+}
+
+.nav-logo-right svg {
+  font-family: var(--font-skranji);
+  font-weight: 500;
+  font-size: 20px;
+  color: var(--white);
+  text-decoration: none;
+  transition: all 0.5s cubic-bezier(0.16, 1, 0.3, 1);
+}
+
+.nav-logo-right:hover {
+  color: #5865F2;
+  text-decoration: none;
+}
+
+.nav-logo-right:hover svg {
+  color: #5865F2;
+  text-decoration: none;
 }
 
 .nav-logo::selection {
