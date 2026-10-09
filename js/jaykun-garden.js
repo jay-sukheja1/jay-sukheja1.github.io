@@ -684,8 +684,8 @@
     }
     return [x, y];
   }
-  function drawStem(e, l, age, f, amp, layer, frO) {
-    const fr = frO != null ? frO : eo((age - e.d0) / e.dur);
+  function drawStem(e, l, age, f, amp, layer, frO, kk = 1) {
+    const fr = (frO != null ? frO : eo((age - e.d0) / e.dur)) * kk;
     if (fr <= 0) return;
     const j = jit(e.id, f, amp),
       P = e.pts.map((p) =>
@@ -700,21 +700,22 @@
     for (const th of e.thorns)
       if (fr > th.u && layerAt(e.segs, th.u) === layer) thorn(P, th.u, th.s);
   }
-  function drawEl(e, l, age, f, amp) {
+  function drawEl(e, l, age, f, amp, kk = 1) {
+    if (kk <= 0.001) return;
     const j = jit(e.id, f, amp),
       wx = (x, y) => wpt(l, l.x + x * S + j[0], l.y + y * S + j[1]);
     if (e.t === "leaf") {
-      const sc = spr((age - e.d0) / 1000, 7, 15);
-      if (sc <= 0) return;
+      const sc = spr((age - e.d0) / 1000, 7, 15) * kk;
+      if (sc <= 0.001) return;
       const p = wx(e.x, e.y);
       leaf(p[0], p[1], e.a + j[2], e.L * S * sc, e.bend);
     } else {
       const a = age - e.d0;
-      if (a < 0) return;
+      if (a < 0 || kk <= 0.001) return;
       const p = wx(e.x, e.y),
         tl = faceTurn(e, p[0], p[1]);
-      if (a > 700) perch.push({ id: e.id, x: p[0], y: p[1], R: e.R * S });
-      rose(p[0], p[1], e.R * S, e.rot + j[2] + tl[0] * 0.22, e, a, tl);
+      if (!l.dead && a > 700) perch.push({ id: e.id, x: p[0], y: p[1], R: e.R * S * kk });
+      rose(p[0], p[1], e.R * S * kk, e.rot + j[2] + tl[0] * 0.22, e, a, tl);
     }
   }
   function render(now) {
@@ -742,25 +743,30 @@
     }
     const f = BOIL ? Math.floor(now / 120) : 0,
       amp = BOIL ? Math.max(0.8, S * 0.01) : 0;
+    const WITHER_DUR = 500;
+    const kd = (l) =>
+      l.dead ? Math.max(0, 1 - eo((now - l.dead) / WITHER_DUR)) : 1;
     const draw = (layer) => {
       letters.forEach((l, i) => {
         const age = now - l.birth;
         if (age < 0) return;
+        const kk = kd(l);
+        if (kk <= 0.001) return;
         const each = (e) => {
-          if (e.t === "stem") drawStem(e, l, age, f, amp, layer);
-          else if (e.layer === layer) drawEl(e, l, age, f, amp);
+          if (e.t === "stem") drawStem(e, l, age, f, amp, layer, null, kk);
+          else if (e.layer === layer) drawEl(e, l, age, f, amp, kk);
         };
         l.els.forEach(each);
         if (l.endEls) l.endEls.forEach(each);
-        if (l.tend && !letters[i + 1]) {
+        if (l.tend && (!letters[i + 1] || letters[i + 1].dead)) {
           const fr = eo((age - 150) / 450);
-          for (const e of l.tend) drawStem(e, l, age, f, amp, layer, fr);
+          for (const e of l.tend) drawStem(e, l, age, f, amp, layer, fr * kk, 1);
         }
       });
     };
     draw(0);
     for (const l of letters)
-      if (now >= l.birth) B.text(l.ch, l.x, l.y, S, C.text);
+      if (now >= l.birth && !l.dead) B.text(l.ch, l.x, l.y, S, C.text);
     draw(1);
   }
   /* ---- butterflies: click a flower and one flies in ---- */
@@ -907,30 +913,96 @@
     B.stroke([T(0, -0.42), T(0.14, -0.72), T(0.24, -0.86)], C.b_2, lw);
   }
   /* ---- run ---- */
+  let state = "idle"; // "idle" | "growing" | "withering" | "withered"
+  let witherTimer = null;
+  let bottomReached = false;
+  let lastScrollY = window.scrollY;
+
   function build() {
     const ws = Math.floor(Math.random() * 1e9);
     letters = [];
     let prev = null;
     [...WORD].forEach((ch, i) => {
-      const l = { ch, id: i + 1, ws, wi: i, prev, birth: 0 };
+      const l = { ch, id: i + 1, ws, wi: i, prev, birth: 0, dead: null };
       gen(l);
       letters.push(l);
       prev = l;
     });
     layout();
   }
+
+  function backspaceOne() {
+    const alive = letters.filter((l) => !l.dead);
+    if (!alive.length) return false;
+    const last = alive[alive.length - 1];
+    last.dead = performance.now();
+    kick();
+    return true;
+  }
+
+  function wither() {
+    if (state === "withering" || state === "withered") return;
+    if (!started) return;
+    state = "withering";
+    kick();
+
+    if (witherTimer) {
+      clearInterval(witherTimer);
+      witherTimer = null;
+    }
+
+    // Immediately backspace the rightmost letter
+    backspaceOne();
+
+    // Successively backspace each preceding letter with rhythmic keystroke interval
+    witherTimer = setInterval(() => {
+      const more = backspaceOne();
+      if (!more) {
+        clearInterval(witherTimer);
+        witherTimer = null;
+        setTimeout(() => {
+          if (state === "withering") {
+            state = "withered";
+            g.clearRect(0, 0, W, H);
+          }
+        }, 550);
+      }
+    }, 130);
+  }
+
   function start() {
+    if (state === "growing" && !letters.some((l) => l.dead)) return;
+    if (witherTimer) {
+      clearInterval(witherTimer);
+      witherTimer = null;
+    }
+    build();
+    state = "growing";
     const now = performance.now();
     letters.forEach((l, i) => {
-      l.birth = now + 250 + i * 170;
+      l.dead = null;
+      l.birth = now + 200 + i * 160;
     });
     const last = letters[letters.length - 1];
     genEnd(last, last.birth - now);
     started = true;
+    kick();
   }
+
+  function isAnimating() {
+    if (!started) return false;
+    if (state === "growing") return true;
+    if (state === "withering") {
+      const now = performance.now();
+      return letters.some((l) => l.dead && now - l.dead < 600) || flies.length > 0;
+    }
+    if (flies.length > 0) return true;
+    return visible;
+  }
+
   function frame() {
     raf = 0;
-    if (!visible) return;
+    if (!visible && !isAnimating()) return;
     raf = requestAnimationFrame(frame);
     const now = performance.now();
     g.setTransform(dpr, 0, 0, dpr, 0, 0);
@@ -940,9 +1012,13 @@
       drawFlies(now);
     }
   }
+
   function kick() {
-    if (visible && !raf) raf = requestAnimationFrame(frame);
+    if (!raf && (visible || isAnimating())) {
+      raf = requestAnimationFrame(frame);
+    }
   }
+
   const local = (e) => {
     const r = cv.getBoundingClientRect();
     return [e.clientX - r.left, e.clientY - r.top];
@@ -959,10 +1035,52 @@
     if (e.pointerType !== "mouse") mx = null;
   });
   cv.addEventListener("pointerdown", (e) => {
-    if (!started) return;
+    if (!started || state !== "growing") return;
     const p = local(e);
     spawnFly(p[0], p[1]);
   });
+
+  // Back to top button triggers backspace wither effect immediately
+  document.addEventListener("click", (e) => {
+    if (e.target && e.target.closest(".bottom-bar-arrow")) {
+      bottomReached = false;
+      wither();
+    }
+  });
+
+  // Scroll listener: detects scrolling up from footer to trigger backspace effect
+  window.addEventListener(
+    "scroll",
+    () => {
+      const curY = window.scrollY;
+      const delta = curY - lastScrollY;
+      lastScrollY = curY;
+
+      const r = host.getBoundingClientRect();
+      const inViewport = r.top < window.innerHeight && r.bottom > 0;
+
+      if (delta < -4) {
+        // Scrolling UP
+        if (bottomReached && (state === "growing" || letters.some((l) => !l.dead))) {
+          // If host is near/below the middle or moving down as user scrolls up
+          if (r.top > window.innerHeight * 0.15) {
+            bottomReached = false;
+            wither();
+          }
+        }
+      } else if (delta > 4) {
+        // Scrolling DOWN towards footer
+        if (inViewport && r.top < window.innerHeight * 0.85) {
+          bottomReached = true;
+          if (state === "withering" || state === "withered") {
+            start();
+          }
+        }
+      }
+    },
+    { passive: true },
+  );
+
   new ResizeObserver(resize).observe(host);
   resize();
   build();
@@ -973,12 +1091,24 @@
     cache = {};
     layout();
   });
+
   new IntersectionObserver(
     (es) => {
-      visible = es[0].isIntersecting;
-      if (visible && !started) start();
+      const entry = es[0];
+      visible = entry.isIntersecting;
+      if (entry.isIntersecting) {
+        bottomReached = true;
+        if (state !== "growing") start();
+      } else {
+        bottomReached = false;
+        const r = host.getBoundingClientRect();
+        // If host is below viewport (user scrolled up past footer)
+        if (r.top > 0 && (state === "growing" || letters.some((l) => !l.dead))) {
+          wither();
+        }
+      }
       kick();
     },
-    { threshold: 0.35 },
+    { threshold: 0.25 },
   ).observe(host);
 })();
