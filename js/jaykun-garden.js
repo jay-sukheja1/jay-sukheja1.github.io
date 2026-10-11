@@ -215,11 +215,11 @@
     const letterSpacing = S * 0.02; // letter-spacing: 0.02em
 
     const ws = letters.map((l) => mw(l.ch) * S + letterSpacing);
-    // left: -0.2em, so text starts at x = 0.2 * S
-    let x = 0.2 * S;
-    // top: -2.5em. Baseline is about 0.82em from top of text bounding box.
-    // So baseline is at 2.5em + 0.82em = 3.32em from canvas top.
-    const y = 3.32 * S;
+    // left: -0.6em, so text starts at x = 0.6 * S
+    let x = 0.6 * S;
+    // top: -2.8em. Baseline is about 0.82em from top of text bounding box.
+    // So baseline is at 2.8em + 0.82em = 3.62em from canvas top.
+    const y = 3.62 * S;
     letters.forEach((l, i) => {
       const w = ws[i];
       l.tx = l.x = x + w / 2;

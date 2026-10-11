@@ -4,14 +4,18 @@
   position: relative;
   margin: 0 0 0em 0;
   display: inline-block;
+  width: fit-content;
+  max-width: calc(100% - clamp(60px, 8vw, 130px));
+  align-self: flex-start;
+  padding-right: 0.8em;
 }
 
 #jaykun-garden {
   position: absolute;
-  top: -2.5em;
-  bottom: -1em;
-  left: -0.2em;
-  right: -0.2em;
+  top: -2.8em;
+  bottom: -1.4em;
+  left: -0.6em;
+  right: -1.6em;
   pointer-events: none;
   z-index: 1;
   margin-bottom: 0;
@@ -26,3 +30,14 @@
   touch-action: manipulation;
   pointer-events: auto;
 }
+
+.bottom-bar-arrow {
+  position: absolute;
+  z-index: 10;
+  pointer-events: auto;
+}
+
+.bottom-bar-arrow svg {
+  pointer-events: none;
+}
+

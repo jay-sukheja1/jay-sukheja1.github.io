@@ -808,6 +808,8 @@ footer.active .bottom-social-btn:hover svg {
   cursor: pointer;
   border: none;
   transition: transform .3s;
+  z-index: 10;
+  pointer-events: auto;
 }
 
 .bottom-bar-arrow:hover {
@@ -817,6 +819,7 @@ footer.active .bottom-social-btn:hover svg {
 .bottom-bar-arrow svg {
   width: 40%;
   height: 40%;
+  pointer-events: none;
 }
 
 .bottom-bar-copyright {
