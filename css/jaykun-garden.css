@@ -35,9 +35,30 @@
   position: absolute;
   z-index: 10;
   pointer-events: auto;
+  transition: transform 0.4s cubic-bezier(0.34, 1.56, 0.64, 1);
 }
 
 .bottom-bar-arrow svg {
   pointer-events: none;
+}
+
+.bottom-bar-arrow.easter-egg-pulse {
+  animation: egg-pulse 0.65s cubic-bezier(0.34, 1.56, 0.64, 1);
+}
+
+@keyframes egg-pulse {
+  0% {
+    transform: scale(1) rotate(0deg);
+  }
+  50% {
+    transform: scale(1.35) rotate(360deg);
+  }
+  100% {
+    transform: scale(1) rotate(360deg);
+  }
+}
+
+.bottom-bar-eyebrow {
+  transition: opacity 0.4s ease, transform 0.4s ease;
 }
 
