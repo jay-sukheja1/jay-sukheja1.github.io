@@ -16593,8 +16593,8 @@ Our bruised arms hung up for sporti
   // Obfuscated easter-egg text payloads (hidden from GitHub code search)
   // Encoded with XOR + Base64 to keep the secret words completely invisible in git repository:
   const _SECRET_CONFIG = {
-    eyebrow: "LjI/eik/OSg/Lno5MjsqLj8oei80PDU2Pik=",
-    word: "KTsxLyg7",                            
+    eyebrow: "LjV6IzUvdnotMy4yeiM1L3Z6Ozg1Ly56IzUvdno4Pzk7Lyk/ejU8eiM1L3o7ND56PDUoeiM1Lw==",
+    word: "GDY/KSkj",                            
     key: 0x5a,
   };
 
@@ -17683,13 +17683,13 @@ Our bruised arms hung up for sporti
     spawnFly(p[0], p[1]);
   });
 
-  // ── Easter Egg Click Detector & Back to Top Handler ──
-  let arrowClicks = [];
-  let scrollTimer = null;
+  // ── Easter Egg State (Desktop only) ──
   let secretUnlocked = false;
+  let keyBuffer = "";
 
   function triggerEasterEgg() {
     if (secretUnlocked) return;
+    if (window.matchMedia("(max-width: 768px)").matches || window.matchMedia("(hover: none) and (pointer: coarse)").matches) return;
     secretUnlocked = true;
 
     const secretEyebrow = decodeSecret(_SECRET_CONFIG.eyebrow, _SECRET_CONFIG.key);
@@ -17741,54 +17741,37 @@ Our bruised arms hung up for sporti
     });
   }
 
-  function handleArrowClick(e) {
-    const now = Date.now();
-    // Keep clicks occurring within 2200ms
-    arrowClicks = arrowClicks.filter((t) => now - t < 2200);
-    arrowClicks.push(now);
-
-    // Cancel any pending scroll-to-top
-    if (scrollTimer) {
-      clearTimeout(scrollTimer);
-      scrollTimer = null;
-    }
-
-    if (arrowClicks.length >= 6) {
-      arrowClicks = [];
-      if (e) {
-        e.preventDefault();
-        e.stopPropagation();
-      }
-      triggerEasterEgg();
+  // ── Desktop Easter Egg: Type the secret word anywhere on keyboard (Disabled on Mobile) ──
+  window.addEventListener("keydown", (e) => {
+    if (window.matchMedia("(max-width: 768px)").matches || window.matchMedia("(hover: none) and (pointer: coarse)").matches) {
       return;
     }
-
-    if (arrowClicks.length >= 2) {
-      // Rapid tapping in progress; suppress scroll to top
-      if (e) {
-        e.preventDefault();
-        e.stopPropagation();
-      }
-      // Instantly cancel any smooth scrolling if another tap occurs
-      window.scrollTo({ top: window.scrollY, behavior: "auto" });
+    const active = document.activeElement;
+    if (active && (active.tagName === "INPUT" || active.tagName === "TEXTAREA" || active.isContentEditable)) {
       return;
     }
-
-    // Single click: scroll to top with minimal delay (50ms for snappy response)
-    scrollTimer = setTimeout(() => {
-      scrollTimer = null;
-      if (arrowClicks.length < 2) {
-        window.scrollTo({ top: 0, behavior: "smooth" });
-        bottomReached = false;
-        wither();
+    if (e.key && e.key.length === 1 && !e.ctrlKey && !e.metaKey && !e.altKey) {
+      keyBuffer += e.key.toLowerCase();
+      const targetWord = (decodeSecret(_SECRET_CONFIG.word, _SECRET_CONFIG.key) || "").toLowerCase();
+      if (targetWord) {
+        if (keyBuffer.length > targetWord.length) {
+          keyBuffer = keyBuffer.slice(-targetWord.length);
+        }
+        if (keyBuffer === targetWord) {
+          keyBuffer = "";
+          triggerEasterEgg();
+        }
       }
-    }, 50);
-  }
+    }
+  });
 
+  // ── Back to Top Arrow: Clean immediate smooth scroll ──
   document.addEventListener("click", (e) => {
     const arrow = e.target && e.target.closest(".bottom-bar-arrow");
     if (arrow) {
-      handleArrowClick(e);
+      window.scrollTo({ top: 0, behavior: "smooth" });
+      bottomReached = false;
+      wither();
     }
   }, true);
 
