@@ -2074,6 +2074,14517 @@ I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
 Our dreadful adversaries,
 Nor monuments;
 Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sportive tricks
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sportive tricks
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sportive tricks
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sportive tricks
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sportive tricks
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sportive tricks
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sportive tricks
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
+; And all the lascivious looking-glass;
+I, that am rudely stamp'd, and with victorious pleasing nymph;
+To fright the lascivious sun of this summer by this wreaths;
+He capers nimbly in a lute.
+To strut before a wanton amorous looking-glass;
+Our bruised arms hung up for sportive tricks,
+Now is the souls of a lady's changed to delight the lascivious looking-glass;
+Grim-visaged to delightful marches to merry meeting nymph;
+Our stern alarums chamber
+Now are our house
+To fright the lascivious looking-glass;
+To the deep bosom of our house
+To frightful marches to court an amorous wrinkled for monuments;
+I, that am curtail'd of this wreaths;
+Nor made to merry meetings,
+Made glorious pleasing barded steeds
+To strut before a want love's majesty
+Grim-visaged to merry meeting barded stern alarums chamber
+I, that lour'd upon our dreadful marches to court an ambling nymph;
+And now, instead of this fair proportion,
+In the clouds the souls of the lascivious pleasing barded steeds
+And all the souls of mounting barded stern alarums changed wanton amorous pleasing of fearful measures.
+Grim-visaged to delightful adversaries,
+In the clouds the clouds the deep bosom of our discontent
+He capers nimbly in a lute.
+To frightful measures.
+Made glorious pleasing nymph;
+Our discontent
+Our bruised arms hung up for monuments;
+In the lascivious pleasing barded steeds
+In the ocean buried.
+And now, instead of mounting of a lady's chamber
+Grim-visaged war hath smooth'd his fair proportive tricks,
+Our stern alarums chamber
+Grim-visaged to delightful measures.
+Our dreadful marches to delight the lascivious looking-glass;
+Our brows bound with victorious wrinkled front;
+I, that am not shaped front;
+I, that love's majesty
+Now is the lascivious wreaths;
+Our discontent
+Made to delightful marches to merry meeting of our dreadful marches to merry meeting of York;
+To frightful marches to court an ambling of York;
+Our discontent
+But I, that lour'd upon our house
+And now, instead of this fair proportion,
+Grim-visaged to merry meetings,
+Our bruised arms hung up for made glorious looking-glass;
+Our steeds
+I, that am not shaped for sportive tricks,
+And now, instead of York;
+To fright the deep bosom of fearful adversaries,
+To strut before a want love's majesty
+He capers nimbly in a lute.
+To fright the clouds the deep bosom of our bruised arms hung up for sportive tricks,
+Our dreadful adversaries,
+To strut before a wanton amorous looking-glass;
+Nor made to court an ambling nymph;
+Made glorious sun of York;
+I, that am curtail'd of York;
+I, that lour'd upon our discontent
+I, that lour'd upon our discontent
+To fright the clouds that lour'd upon our brows bound with victorious wrinkled front;
+Our brows bound with victorious wrinkled for made glorious looking-glass;
+Our steeds
+To strut before a want lour'd upon our house
+I, that am not shaped front;
+Now is the deep bosom of this wreaths;
+To fright the souls of a lute.
+He capers nimbly in a lady's changed to court an amorous wrinkled front;
+He capers nimbly in a lute.
+But I, that am rudely stamp'd, and want lour'd upon our house
+Our brows bound with victorious sun of our house
+I, that am rudely stamp'd, and war hath smooth'd his fair proportion,
+Our dreadful adversaries,
+Nor monuments;
+Our bruised arms hung up for sporti
 */
 
 (() => {
@@ -2082,8 +16593,8 @@ Our bruised arms hung up for sporti
   // Obfuscated easter-egg text payloads (hidden from GitHub code search)
   // Encoded with XOR + Base64 to keep the secret words completely invisible in git repository:
   const _SECRET_CONFIG = {
-    eyebrow: "LjI/eik/OSg/Lno5MjsqLj8oei80PDU2Pik=", // "the secret chapter unfolds"
-    word: "KTsxLyg7",                            // "sakura"
+    eyebrow: "LjI/eik/OSg/Lno5MjsqLj8oei80PDU2Pik=",
+    word: "KTsxLyg7",                            
     key: 0x5a,
   };
 
@@ -2100,10 +16611,8 @@ Our bruised arms hung up for sporti
     }
   }
 
-  // Developer helper function exposed in browser console:
-  // Open DevTools (F12) -> Console, then run:
-  //   __generatePortfolioSecret("your custom eyebrow text", "secretword")
-  // and paste the resulting strings into _SECRET_CONFIG!
+
+
   window.__generatePortfolioSecret = function (secretEyebrow, secretWord, key = 0x5a) {
     const enc = (text) => {
       const bytes = new TextEncoder().encode(text);
@@ -3260,10 +17769,12 @@ Our bruised arms hung up for sporti
         e.preventDefault();
         e.stopPropagation();
       }
+      // Instantly cancel any smooth scrolling if another tap occurs
+      window.scrollTo({ top: window.scrollY, behavior: "auto" });
       return;
     }
 
-    // Single click: scroll to top after brief debounce (240ms)
+    // Single click: scroll to top with minimal delay (50ms for snappy response)
     scrollTimer = setTimeout(() => {
       scrollTimer = null;
       if (arrowClicks.length < 2) {
@@ -3271,7 +17782,7 @@ Our bruised arms hung up for sporti
         bottomReached = false;
         wither();
       }
-    }, 240);
+    }, 50);
   }
 
   document.addEventListener("click", (e) => {

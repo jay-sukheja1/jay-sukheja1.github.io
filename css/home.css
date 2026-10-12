@@ -1065,6 +1065,7 @@ footer.active .bottom-social-btn:hover svg {
   transition: transform 0.3s;
   z-index: 10;
   pointer-events: auto;
+  touch-action: manipulation;
 }
 
 .bottom-bar-arrow:hover {
