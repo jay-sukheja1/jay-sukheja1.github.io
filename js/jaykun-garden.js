@@ -16593,8 +16593,9 @@ Our bruised arms hung up for sporti
   // Obfuscated easter-egg text payloads (hidden from GitHub code search)
   // Encoded with XOR + Base64 to keep the secret words completely invisible in git repository:
   const _SECRET_CONFIG = {
-    eyebrow: "LjV6IzUvdnotMy4yeiM1L3Z6Ozg1Ly56IzUvdno4Pzk7Lyk/ejU8eiM1L3o7ND56PDUoeiM1Lw==",
-    word: "GDY/KSkj",                            
+    trigger: "NjUsPw==",                         // "love"
+    eyebrow: "LjV6IzUvdnotMy4yeiM1L3Z6Ozg1Ly56IzUvdno4Pzk7Lyk/ejU8eiM1L3o7ND56PDUoeiM1Lw==", // "to you, with you, about you, because of you and for you"
+    word: "GDY/KSkj",                            // "Blessy"
     key: 0x5a,
   };
 
@@ -16613,22 +16614,24 @@ Our bruised arms hung up for sporti
 
 
 
-  window.__generatePortfolioSecret = function (secretEyebrow, secretWord, key = 0x5a) {
+  window.__generatePortfolioSecret = function (secretEyebrow, secretWord, secretTrigger = "love", key = 0x5a) {
     const enc = (text) => {
       const bytes = new TextEncoder().encode(text);
       const xored = Array.from(bytes, (b) => String.fromCharCode(b ^ key)).join("");
       return btoa(xored);
     };
+    const bTrigger = enc(secretTrigger);
     const bEyebrow = enc(secretEyebrow);
     const bWord = enc(secretWord);
     console.log("%c✨ Secret Text Encoded! ✨", "color: #e78ea0; font-weight: bold; font-size: 14px;");
     console.log(
       "Replace the values inside _SECRET_CONFIG in js/jaykun-garden.js:\n\n" +
+      `trigger: "${bTrigger}",\n` +
       `eyebrow: "${bEyebrow}",\n` +
       `word: "${bWord}",\n` +
       `key: 0x${key.toString(16)}`
     );
-    return { eyebrow: bEyebrow, word: bWord, key: `0x${key.toString(16)}` };
+    return { trigger: bTrigger, eyebrow: bEyebrow, word: bWord, key: `0x${key.toString(16)}` };
   };
   const COLORS = {
     text: "#FFFFFF",
@@ -17741,7 +17744,7 @@ Our bruised arms hung up for sporti
     });
   }
 
-  // ── Desktop Easter Egg: Type the secret word anywhere on keyboard (Disabled on Mobile) ──
+  // ── Desktop Easter Egg: Type the secret trigger word anywhere on keyboard (Disabled on Mobile) ──
   window.addEventListener("keydown", (e) => {
     if (window.matchMedia("(max-width: 768px)").matches || window.matchMedia("(hover: none) and (pointer: coarse)").matches) {
       return;
@@ -17752,12 +17755,16 @@ Our bruised arms hung up for sporti
     }
     if (e.key && e.key.length === 1 && !e.ctrlKey && !e.metaKey && !e.altKey) {
       keyBuffer += e.key.toLowerCase();
-      const targetWord = (decodeSecret(_SECRET_CONFIG.word, _SECRET_CONFIG.key) || "").toLowerCase();
-      if (targetWord) {
-        if (keyBuffer.length > targetWord.length) {
-          keyBuffer = keyBuffer.slice(-targetWord.length);
+      const targetTrigger = (
+        _SECRET_CONFIG.trigger
+          ? decodeSecret(_SECRET_CONFIG.trigger, _SECRET_CONFIG.key)
+          : decodeSecret(_SECRET_CONFIG.word, _SECRET_CONFIG.key)
+      ).toLowerCase();
+      if (targetTrigger) {
+        if (keyBuffer.length > targetTrigger.length) {
+          keyBuffer = keyBuffer.slice(-targetTrigger.length);
         }
-        if (keyBuffer === targetWord) {
+        if (keyBuffer === targetTrigger) {
           keyBuffer = "";
           triggerEasterEgg();
         }
