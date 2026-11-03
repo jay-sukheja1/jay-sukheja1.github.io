@@ -18,7 +18,7 @@
   --gray: #616161;
   --gray-light: #aaaaaa;
   --gray-border: #aeaeae;
-  --accent: #78A4CB;
+  --accent: #78a4cb;
   --font-inter: "Inter", sans-serif;
   --font-dm: "DM Sans", sans-serif;
   --font-skranji: "Skranji", sans-serif;
@@ -193,12 +193,12 @@ body {
 }
 
 .nav-logo-right:hover {
-  color: #5865F2;
+  color: #5865f2;
   text-decoration: none;
 }
 
 .nav-logo-right:hover svg {
-  color: #5865F2;
+  color: #5865f2;
   text-decoration: none;
 }
 
@@ -315,14 +315,15 @@ body {
 }
 
 .resume-link:hover .resume-btn-arrow {
-    color: var(--black);
+  color: var(--black);
 }
-
 
 .resume-btn-arrow svg {
   width: 14px;
   height: 14px;
-  transition: transform 0.28s cubic-bezier(0.16, 1, 0.3, 1), stroke 0.2s ease;
+  transition:
+    transform 0.28s cubic-bezier(0.16, 1, 0.3, 1),
+    stroke 0.2s ease;
 }
 
 .nav-sep {
