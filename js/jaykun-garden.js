@@ -16591,11 +16591,10 @@ Our bruised arms hung up for sporti
   let currentWord = "jaykun";
 
   // Obfuscated easter-egg text payloads (hidden from GitHub code search)
-  // Encoded with XOR + Base64 to keep the secret words completely invisible in git repository:
   const _SECRET_CONFIG = {
-    trigger: "NjUsPw==",                         // "love"
+    trigger: "NjUsPw==",
     eyebrow: "LjV6IzUvdnotMy4yeiM1L3Z6Ozg1Ly56IzUvdno4Pzk7Lyk/ejU8eiM1L3o7ND56PDUoeiM1Lw==", // "to you, with you, about you, because of you and for you"
-    word: "GDY/KSkj",                            // "Blessy"
+    word: "GDY/KSkj",
     key: 0x5a,
   };
 
