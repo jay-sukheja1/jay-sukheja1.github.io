@@ -16593,7 +16593,7 @@ Our bruised arms hung up for sporti
   // Obfuscated easter-egg text payloads (hidden from GitHub code search)
   const _SECRET_CONFIG = {
     trigger: "NjUsPw==",
-    eyebrow: "LjV6IzUvdnotMy4yeiM1L3Z6Ozg1Ly56IzUvdno4Pzk7Lyk/ejU8eiM1L3o7ND56PDUoeiM1Lw==", // "to you, with you, about you, because of you and for you"
+    eyebrow: "LjV6IzUvdnotMy4yeiM1L3Z6Ozg1Ly56IzUvdno4Pzk7Lyk/ejU8eiM1L3o7ND56PDUoeiM1Lw==",
     word: "GDY/KSkj",
     key: 0x5a,
   };
